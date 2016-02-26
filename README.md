@@ -3,8 +3,8 @@
 I'm publishing and saving my songs here on github for better public usage and to keep track on them. most of them are in german, I'm afraid. All are available under the CC BY 4.0.
 
 # Content
-* Not All of these songs are actually in this repository.
-* The Songs already recorded are marked.
+0. Not All of these songs are actually in this repository.
+1. The Songs already recorded are marked.
 
 * Planloser verkackt Hygienemaßnahme
 
