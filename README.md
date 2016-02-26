@@ -4,62 +4,118 @@ I'm publishing and saving my songs here on github for better public usage and to
 
 # Content
 Planloser verkackt Hygienemaßnahme
+
 Paradies voll Hasch
+
 Psychose verursacht Halluzinationen
+
 Pubertät vor Heimatschutz
+
 Plind vür hässliches
+
 Hundeschönheitswettbewerb / Parade vollblütiger Hunde
+
 Warum / Die wichtigsten Fragen dieser Welt
+
 Ich schwebe / Probleme von Herkömmlichen
+
 Vogellied / Phantasievoll Vogelfrei Herzensfroh
+
 Kaktus / Paranormale Vegetative Handlungen
+
 ACAB / Polizisten verbreiten Hass
+
 Puritaner verstecken Homosexualität
+
 pissen Vampire Hämoglobin?
+
 Panik vor Hellsicht
+
 Grölen / Proleten verehren Hochprozentiges
+
 God Save America / Pray vor Hell
+
 Promille vördert Hirnzellen
+
 Plattenbau verlorener Heulsusen
+
 Plackerei verfressener Hamstermenschen
+
 Unschuld / pralle verleugnete Harmonie
+
 Priester vermissen Höschen
+
 Pyromane vs Hagebuttenblüte
+
 Prostitution verzehrt Herzen
+
 Pazifismus verändert Harmlose
+
 Werbung / Plendwerk verrückter Hetzer
+
 nenn mich Idealist / Piraten verändern handfest
+
 Primitives Verlangen herrscht
+
 Märchenprinz / Prinz vabelhafter Herkunft
+
 Chaussee / Punk versus Heim
+
 Passionsgeschichte vertiger Heulsusen
+
 $ctOS / Paranoia vor Hochleistungscomputern
+
 $algorithmus
+
 $backup
+
 $cyborg
+
 $essenistkunst
+
 $fassung
+
 $tiermensch
+
 Letzte Worte 
+
 Liebe Mich 
+
 Was ist das für eine Welt
+
 Barfuß
+
 Stillstand
+
 Drogenstrich
+
 stell dir vor, zu leben
+
 suchen, ignorieren, vergessen
+
 Herz gefickt
+
 Clyde²
+
 Viva Postmusikalista
+
 Postnatale Aggression / Parentale Verbindungen Herrschen
+
 Dunwall
+
 Ich bin die Angst
+
 Augenblick
+
 Vernichtungsfantasie
+
 Ihr alle hättet damals Hitler gewählt
+
 Sonnenfinsternis / Projektion verliebter Hoffnung
 
+
 # License
+http://creativecommons.org/licenses/by/4.0/legalcode
 Creative Commons Attribution 4.0 International Public License
 
 By exercising the Licensed Rights (defined below), You accept and agree to be bound by the terms and conditions of this Creative Commons Attribution 4.0 International Public License ("Public License"). To the extent this Public License may be interpreted as a contract, You are granted the Licensed Rights in consideration of Your acceptance of these terms and conditions, and the Licensor grants You such rights in consideration of benefits the Licensor receives from making the Licensed Material available under these terms and conditions.
