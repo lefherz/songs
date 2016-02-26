@@ -3,33 +3,36 @@
 I'm publishing and saving my songs here on github for better public usage and to keep track on them. most of them are in german, I'm afraid. All are available under the CC BY 4.0.
 
 # Content
-Planloser verkackt Hygienemaßnahme
+* Not All of these songs are actually in this repository.
+* The Songs already recorded are marked.
 
-Paradies voll Hasch
+* Planloser verkackt Hygienemaßnahme
 
-Psychose verursacht Halluzinationen
+* Paradies voll Hasch
 
-Pubertät vor Heimatschutz
+* Psychose verursacht Halluzinationen
 
-Plind vür hässliches
+* Pubertät vor Heimatschutz
+
+* Plind vür hässliches
 
 Hundeschönheitswettbewerb / Parade vollblütiger Hunde
 
 Warum / Die wichtigsten Fragen dieser Welt
 
-Ich schwebe / Probleme von Herkömmlichen
+* Ich schwebe / Probleme von Herkömmlichen
 
-Vogellied / Phantasievoll Vogelfrei Herzensfroh
+* Vogellied / Phantasievoll Vogelfrei Herzensfroh
 
-Kaktus / Paranormale Vegetative Handlungen
+* Kaktus / Paranormale Vegetative Handlungen
 
-ACAB / Polizisten verbreiten Hass
+* ACAB / Polizisten verbreiten Hass
 
 Puritaner verstecken Homosexualität
 
 pissen Vampire Hämoglobin?
 
-Panik vor Hellsicht
+* Panik vor Hellsicht
 
 Grölen / Proleten verehren Hochprozentiges
 
@@ -39,7 +42,7 @@ Promille vördert Hirnzellen
 
 Plattenbau verlorener Heulsusen
 
-Plackerei verfressener Hamstermenschen
+* Plackerei verfressener Hamstermenschen
 
 Unschuld / pralle verleugnete Harmonie
 
@@ -55,7 +58,7 @@ Werbung / Plendwerk verrückter Hetzer
 
 nenn mich Idealist / Piraten verändern handfest
 
-Primitives Verlangen herrscht
+* Primitives Verlangen herrscht
 
 Märchenprinz / Prinz vabelhafter Herkunft
 
@@ -63,9 +66,9 @@ Chaussee / Punk versus Heim
 
 Passionsgeschichte vertiger Heulsusen
 
-$ctOS / Paranoia vor Hochleistungscomputern
+* $ctOS / Paranoia vor Hochleistungscomputern
 
-$algorithmus
+* $algorithmus
 
 $backup
 
@@ -99,7 +102,7 @@ Clyde²
 
 Viva Postmusikalista
 
-Postnatale Aggression / Parentale Verbindungen Herrschen
+* Postnatale Aggression / Parentale Verbindungen Herrschen
 
 Dunwall
 
@@ -107,7 +110,7 @@ Ich bin die Angst
 
 Augenblick
 
-Vernichtungsfantasie
+* Vernichtungsfantasie
 
 Ihr alle hättet damals Hitler gewählt
 
