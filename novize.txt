@@ -1,3 +1,4 @@
+melodie: https://github.com/lefherz/songs/tune
 
 Der schüchterne Novize sitzt im Garten auf der Bank.
 Liest in Schriften, die er mal in einem Keller fand
