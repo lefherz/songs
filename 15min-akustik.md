@@ -1,0 +1,5 @@
+Vernichtungsphantasie
+Liebe Mich
+Kaktus
+Prostitution
+Vogellied
