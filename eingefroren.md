@@ -1,6 +1,8 @@
 # Eingefroren
 
 Alles Powerchords, bis auf den Refrain gedämpft
+Riff, das nach so ziemlich allem kommt:
+E|5224202-|
 
 Wann hattest du das letzte Mal den Mut		C#	G#  
 Etwas zu tun, was sonst niemand jemals tut	Bb	F#  
@@ -14,7 +16,7 @@ lag uns das nicht im Blut
 
 Chorus:  
 doch wir sind eingefroren in der Ewigkeit	Bb	F#  
-haben wir einen Eid geschworen			C#	G#  
+wann haben wir den Eid geschworen		C#	G#  
 niemals das zu tun, was uns vielleicht		Bb	G#  
 nur für einen Moment befreit			F#
 
