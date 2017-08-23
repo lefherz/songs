@@ -88,3 +88,13 @@ Versuch dich zu verstecken, doch die Angst sie holt sich jedermann
 und wenn du gar verschont wirst und dich der Virus aussortiert  
 lebst du ängstlich vor dich hin bis elendig dein Herz gefriert!
 
+```
+Der letzte Refrain:
+e|10-------|6---5---|
+h|10-------|6---5---| (3x)
+g|10-------|7---6---|
+
+d|3-3-3-3-|5-5-5---|0-  e|10-----|
+a|3-3-3-3-|5-5-5---|0-  h|10-----|
+d|3-3-3-3-|5-5-5---|0-  g|10-----|
+```
