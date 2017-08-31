@@ -11,11 +11,11 @@ damit auch noch morgen früh die Bahnen fahrn
 
 Fünf Tage die Woche knechten, zwei mit der Familie  
 du kaufst deiner Mutter eine Lilie  
-hast dich längst gewöhnt, an die ewig langen Schlangen  
-wärste halt mal früher hingegangen.  
-Die Partei schlägt dir nicht auf den Magen.  
+Als du sie besuchst hast du ein Ohr an ihrer Wand
+Was die Nachbarn reden ist doch hochinteressant.  
+Die SED schlägt dir nicht auf den Magen.  
 hättest du ne Meinung, würdest du sie eh nicht sagen  
-und wenn dann nicht so laut, wenn dann nicht publik  
+wenn dann nicht so laut, wenn dann nicht publik  
 deine Kinder hören nur so komische Musik  
 Doch als dann die Mauer fällt, draußen ist die weite Welt  
 drückst du einen Fremden, fragst dich, bin ich jetzt ein Held?  
@@ -51,6 +51,8 @@ Manchmal hörst du noch die alten Lieder,
 Fühlst dich dann ein bisschen wie ein Sieger,  
 denkst an deine Freunde, an die Toten,  
 deine Lieder sind heute verboten.  
+Du fühlst dich verraten durch das deutsche Gesetz  
+vor zehn Jahren hat dich ne Maschine ersetzt  
 Du fährst auf Papas Autobahn zur Nordsee  
 Weil du dich seit Jahren doch schon fortsehnst.  
 Aber nicht nach Westen, Osten, unten oder oben.  
