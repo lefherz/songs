@@ -7,7 +7,7 @@ immer wenn ich traurig bin, frage ich mich selbst
 warum können wir nicht alle Freunde sein?  
 Ich bin also los um einen Nazi zu bekehrn   
 und sieh da, er hat mich nicht geschlagen!  
-Man muss die nicht bekämpfen, wir sind doch alle Menschen  
+Wir sind doch alle Menschen, man muss die nicht bekämpfen  
 Ich höre ihm zu, er hat etwas zu sagen
 
 G	C	D	G  
