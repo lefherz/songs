@@ -9,7 +9,7 @@ dopamin shoots through my wires and I fall awake
 
 My body - is over - the ocean  
 My body - is over - the sea  
-Oh Bonnie, come bring back my body 
+Oh Bonnie, come bring back my body  
 bring it back online, to me
 
 Nobody can tell in here how long a day will take  
@@ -23,7 +23,7 @@ no more sleep, no more food, and nevermore sorrow
 
 My body - is over - the ocean  
 My body - is over - the sea  
-Oh Bonnie, come bring back my body 
+Oh Bonnie, come bring back my body  
 bring it back online, to me
 
 Was it yesterday or now or will it never happen  
@@ -37,6 +37,6 @@ so I will swim forever, cause I dream nevermore
 
 My body - is over - the ocean  
 My body - is over - the sea  
-Oh Bonnie, come bring back my body 
+Oh Bonnie, come bring back my body  
 bring it back online, to me
 
