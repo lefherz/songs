@@ -30,8 +30,8 @@ Sie sagen, der Kunde ist König, und Programmcode ist Gesetz -
 Vielleicht ist der König in Wirklichkeit der, für den man arbeitet
 
 Vielleicht kann man eine Datenbank bauen, in die sich jeder selbst einträgt.
-Vielleicht muss man sein Handy beherrschen, oder es beherrscht einen zurück.
-Vielleicht will ich mich nicht mehr fragen, welche Daten meine Taten hinterlassen.
+Vielleicht mussst du dein Handy beherrschen, oder es beherrscht dich zurück.
+ich will mich nicht mehr fragen, welche Daten meine Taten hinterlassen.
 Vielleicht ist es egal, ob man von einem Mensch oder einer Maschine beherrscht wird
 
 Sie sagen, der Kunde ist König, und Programmcode ist Gesetz - 
