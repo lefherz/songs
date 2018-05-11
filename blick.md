@@ -19,6 +19,26 @@ um am Anblick sich zu frönen
 
 summen? singen?
 
+Sie läuft harmlos durch die Gegend  
+wie man hier so eben läuft  
+und ich komme ihr entgegen  
+und mein Blick der kreucht und fleucht  
+und es treffen sich die Bahnen  
+Sie sieht ängstlich zu mir hin  
+woher sollte sie auch ahnen  
+dass ich feministisch bin
+
+Und ich schäme mich für sie  
+meine ungestüme Sicht  
+denn kein Käfig kontrolliert  
+ein paar Strahlen kaltes Licht  
+Und so wende ich ihn ab    
+schaue tief in meine Seele  
+ist die Dunkelheit nur Scham  
+oder die männlichen Gefühle?
+
+---
+
 Oh ich weiß, was du getan hast  
 und ich habs deutlich gesehn  
 doch der Beamte meinte hastig  
