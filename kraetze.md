@@ -26,8 +26,8 @@ Du bringst das beste in mir ans Tageslicht
 und ich in dir, ich liebe dich, liebst du auch mich?
 
 Keine Salbe oder Creme wird jemals zwischen uns stehn
-Ich lieg in deinem Armen, du bist halt so bequem
 Du rufst all deine Freunde an, du musst von mir erzähln
+Ich lieg so gern in deinem Arm, du bist halt so bequem
 Du sagst, ich mach dich verrückt, und ich sage "Kein Problem!"
 
 Manchmal willst du dich trennen, und ich frage mich warum
