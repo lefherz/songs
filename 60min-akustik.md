@@ -16,6 +16,8 @@ Warum man nicht jeden Tag vögeln kann
 
 Clyde²
 
+Krätze
+
 Sonnenfinsternis
 
 Liebe mich
@@ -37,8 +39,6 @@ Virus
 Vernichtungsphantasie
 
 Kaktus
-
-Studie in 7
 
 Ampeln
 

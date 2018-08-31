@@ -41,7 +41,7 @@ im Kreuzfeuer der Fragen haben Worte viel Gewicht
 doch außer von Jehova sagen sie mir nichts  
 Ich drohe ihm mit U-Haft und dass ich ihn mit der Faust schlage  
 einer nach dem anderen verweigern sie die Aussage  
-niemand den ich vorlade hat etwas gesehn  
+niemand den ich ausfrage hat etwas gesehn  
 ich werde fast verrückt, ich will doch nur verstehn
 
 Warum man nicht jeden Tag Vögeln kann (4x)
