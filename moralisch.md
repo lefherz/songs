@@ -22,7 +22,7 @@ und gäbe es Migranten, bei mir in Ziegelstein
 würde ich ja auch mit denen reden  
 Und die Typen, die da vor der Hauptschule pöbeln  
 machen mir nun mal ein bisschen Angst!  
-Der Nazi, der war netter als ihr asozialen Vögel
+Der Nazi, der war netter als ihr asozialen Vögel  
 komm wieder wenn du meine Sprache kannst!
 
 Doch ich bin so moralisch super und ein prima Pazifist  
