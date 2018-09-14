@@ -1,0 +1,44 @@
+# Irgendwo in einem Wald
+
+```
+G   C   D   G
+e   a   D   D
+G   C   D   G
+e   a   D   G
+```
+
+Man gab mir ne Gitarre, also erzähl ich von nem Wald  
+Da warn die Menschen warm, und die Winter warn so kalt  
+Die Bäume oh sie waren fast so hoch wie unsre Ziele  
+und es warn viele.
+
+Fremder, willst du Freund sein, dann frag nach dem Pronomen  
+und such dir einen Namen aus, wir ham noch viele da  
+Am Ende werden eh alle nur Mike zueinander sagen  
+und ich werde Mike vermissen, und wie einfach alles war.
+
+Mein ganzes Leben hab ich von Solarzellen geträumt  
+und von Windräder-Rudeln, die auf den Dächern sprießen  
+Doch erst als ich zur Wiese kam, wurd mir klar, es ist kein Traum  
+und man kann ohne Probleme so leben und genießen.
+
+Wir trampten bis nach Spanien und fanden ein paar Hambis  
+die kochten auf nem Feuer und ich sah beeindruckt zu  
+selbst wenn du in der Zivilisation vielleicht nicht klarkommst  
+Du bist sicher nicht so hilflos, wie ich in der Natur.
+
+Irgendwo am Arsch von Düren gibts ein Haus mit offnen Türen  
+Da wächst im Garten alles ohne Zwang und wie es will  
+und als das Haus mal leer war, lud es ein zu nem Besäufnis  
+schon war es nicht mehr leer und auch ganz sicher nicht mehr still.
+
+Sissy sang über Maschinen, und Alice sang von Krätze  
+und war sauer, dass sich niemand ihre andren Lieder merkt.  
+und wenn man keinen iPod und kein Spotify dabei hat  
+dann ist jedes kleine Liedchen, wie ein Wunder, das man hört.
+
+Wir haben durch ein Fenster in die Zukunft reingelebt  
+Hier das schöne Leben, und da drüben ist ein Loch  
+Und im Schatten einer Polizeistaat-Dystopie  
+da ham wir unsre Welt gebaut, die Träume stehen noch.
+
