@@ -1,6 +1,6 @@
 # songs
 
-I'm publishing and saving my songs here on github for better public usage and to keep track on them. most of them are in german, I'm afraid. All are available under the CC BY 4.0.
+I'm publishing and saving my songs here on github for better public usage and to keep track on them. most of them are in german, I'm afraid. All are available under the CC BY 4.0 complÄxx.
 
 # Content
 0. Not All of these songs are actually in this repository.
