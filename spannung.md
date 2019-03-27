@@ -1,4 +1,5 @@
 
+A   E   D   B  
 Es gibt Fragen, die ich mir nicht stelle  
 Es gibt Tage, wo du mich verbiegst  
 Es gibt Götter, die nicht an mich glauben,  
@@ -9,6 +10,7 @@ Es gibt da einen Punker, der nicht lebt
 Es gibt Linke, die machen die Welt schlimmer  
 Doch es gibt keinen, der mich unverdünnt erträgt
 
+F   D   E   B   F   D   E   E
 Am Kopfende, wo wir manchmal schlafen  
 abgewandt, die Augen blind und still  
 liegt ein Stapel voller Fragen  
