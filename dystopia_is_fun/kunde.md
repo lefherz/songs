@@ -1,3 +1,5 @@
+# _kunde
+
 Wie viele Stunden am Tag arbeitest du, und während wie vielen Stunden bist du nur Kunde?
 Und wenn man König ist, solange man Kunde ist, ist man wenn man arbeitet der Untertan?
 Wenn man also kein Untertan sein will, muss man mehr kaufen oder weniger arbeiten?
