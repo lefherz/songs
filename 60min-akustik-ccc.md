@@ -1,24 +1,18 @@
-Montag
-
 Warum
+
+Liebe mich
 
 Studenten
 
-Irgendwo in einem Wald
-
-Prima Militant
+Der Blick
 
 Prima Pazifist
 
-Zerstörungslied
-
-Hitler gewählt
-
 Weltuntergang
 
-Sonnenfinsternis
+Clyde²
 
-Liebe mich
+Sonnenfinsternis
 
 Virus
 
@@ -26,11 +20,19 @@ Priester vermissen Höschen
 
 Märchenprinz
 
+Zerstörungslied
+
+Prostitution verzehrt Herzen
+
+Irgendwo in einem Wald
+
 Kannst du mit diesen Zähnen küssen
 
-Der Blick
+Stier & Stier
 
 Spannung
+
+Vernichtungsphantasie
 
 Ampeln
 

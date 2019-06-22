@@ -1,4 +1,4 @@
-# Moralisch super
+# Prima Pazifist
 
 e	D	C	C  
 Manche Menschen sind halt wütend, böse und gemein  

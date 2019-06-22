@@ -6,9 +6,9 @@ Studenten
 
 Irgendwo in einem Wald
 
-Pazifismus
+Prima Militant
 
-Moralisch Super
+Prima Pazifist
 
 Zerstörungslied
 

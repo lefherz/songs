@@ -2,9 +2,9 @@ Montag
 
 Grölen
 
-Pazifismus
+Prima Militant
 
-Moralisch Super
+Prima Pazifist
 
 Polizisten verbreiten Hass
 

@@ -5,6 +5,6 @@ eine Antwort haben, hat complÄxx nur Fragen und Widersprüche übrig.
 
 1. montag
 2. jung && gebildet
-3. moralisch super
+3. prima pazifist
 4. Hitler gewählt
 5. Letzte Worte
