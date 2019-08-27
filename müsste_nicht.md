@@ -26,7 +26,9 @@ Der Bäcker backt die Brote, doch er müsste nicht
 Dann backen das doch lieber Roboter!
 
 Brotbacken ist langweilig und immer gleich  
-
+Brotbacken ist fast so schlimm wie programmieren  
+Nur vom Brote backen wird doch niemand reich  
+Lassen wir das Brote backen den Maschinen
 
 Der Staat macht die Gesetze, doch er müsste nicht  
 aber er ist nun mal grade hier  
@@ -44,7 +46,7 @@ Der Nerd, der schreibt die Zukunft, doch er müsste nicht
 Dann schreiben doch die Zukunft lieber wir!
 
 Er sitzt alleine vor dem Rechner und designt die Welt  
-Von mir aus muss er davor nicht alleine sitzen  
+Von mir aus muss er da nicht alleine sitzen  
 wir machen die Welt zusammen wie sie uns gefällt  
 Während die da sich noch vor den Hackern schützen
 
@@ -62,3 +64,4 @@ Ich schreibe die Protestsongs doch ich müsste nicht
 Ich bin halt nur leider grade hier  
 Alleine hat ein Liedchen leider kein Gewicht  
 drum macht das mit dem Aufstand bitte ihr!
+
