@@ -1,4 +1,4 @@
-# postmusikalista
+# _postmusikalista
 
 Ich mag keine Popmusik die ist mir zu stupide  
 Ich mag keinen Schlager, mir ist Heimat nur zuwider  
@@ -7,7 +7,7 @@ Ich hasse Balladen denn ich hab genug von Liebe
 Ich mag keinen Reggae mehr, seit ich nicht mehr kiffe  
 Ich hasse Piratenmetal, denn ich hasse Schiffe  
 Ich mag keinen Cyberpunk und technisches Getacker  
-Ich mag keinen Hip Hop, das sind doch nur alles Macker  
+Ich mag keinen Hip Hop, das sind doch alles Macker  
 Ich mag keinen Techno, denn das ist keine Musik  
 Ich mag keinen Blackmetal, das klingt zu sehr Krieg  
 Ich mag keine Weltmusik das ist nur was für Hippies  
@@ -38,7 +38,7 @@ Industrial Metal klingt so sehr nach Kapital
 White Metal klingt für mich zu sehr nach National  
 Ich mag keinen Folk Metal, Völker sind voll Out  
 Ich mag keinen Trash Metal, das ist von Punk geklaut  
-Nu Metal mag ich auch nicht, der ist schon viel zu alt  
+Nu Metal mag ich nicht, der ist schon viel zu alt  
 Gothic Metal mag ich nicht, der ist mir viel zu kalt  
 Hard Metal mag ich nicht, ist zu verschissen WEICH  
 Heavy Metal mag ich nicht, ist zu verschissen LEICHT
