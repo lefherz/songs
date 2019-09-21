@@ -6,9 +6,9 @@ Die Mutter ist am Kochen, doch sie müsste nicht
 Dann machen doch das Kochen lieber wir!
 
 Mutter hat auf kochen wirklich keine Lust  
-und wie sollen wir da etwas neues lernen  
-Mutter hat vom kochen früher auch mal nichts gewusst  
-Und dann muss der Herd sie nicht alleine wärmen
+wird ja nicht einmal dafür bezahlt  
+Hätte sie vom Rahmen früher was gewusst  
+hätte sie ein andres Bild gemalt
 
 Der Papst segnet die Kinder, doch er müsste nicht  
 aber er ist nun mal grade hier  
@@ -46,7 +46,7 @@ Der Nerd, der schreibt die Zukunft, doch er müsste nicht
 Dann schreiben doch die Zukunft lieber wir!
 
 Er sitzt alleine vor dem Rechner und designt die Welt  
-Von mir aus muss er da nicht alleine sitzen  
+Dabei muss er da doch nicht alleine sitzen  
 wir machen die Welt zusammen wie sie uns gefällt  
 Während die da sich noch vor den Hackern schützen
 
