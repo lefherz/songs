@@ -34,6 +34,7 @@ bis dir der Himmel auf den Schädel fällt
 Ich bin die Angst und ich fresse deine Freiheit auf  
 du hast Angst mich zu verlieren darum nimmst du mich in Kauf.
 
+*Immer beide abwechselnd eine Zeile:*
 
 Komm gehorch mir, mach dein Herz zu,  
 bis ich dich mit Hass erfülle  
