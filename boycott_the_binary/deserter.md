@@ -3,7 +3,7 @@
 
 not all humans are born equal, some are born to become more  
 shill was such a child, though sickly, cute as all the children are  
-first when shill got their first implant, the doctor said what it was for  
+first when shill got their first aug, the doctor said what it was for  
 later no one bothered telling, when they got to fight the war  
 shill was proud and pretty happy, implants made them well again  
 and each contract brought some hardware, sponsored by UC-pay  
