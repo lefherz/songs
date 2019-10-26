@@ -1,5 +1,14 @@
 # _euphoria
 
+```
+Riff:
+g|10--11108-7-----|
+d|--------------8-|
+
+Akkorde:
+e|66666666|6666986-|44444444|55555555|
+```
+
 Mein Körper ist kein Tempel, mein Körper ist ne Baustelle.  
 Ich begehe Götzendienst, wenn ich ihn zur Schau stelle.  
 Ich begehe Ketzerei, wenn ich mir was dranschraube  
