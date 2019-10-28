@@ -22,7 +22,7 @@ as their fellow wage slave colleagues, uniforms of UC-pay
 shill could understand their anger, all the crimes filled quite a list  
 when the shooting order came, shill tried really to resist  
 but their arm was autonomous, lifts the gun, aim assist  
-if shill had just shot themselves, maybe bullets would have missed
+if shill had shot on their own, maybe bullets would have missed
 
 
 shill was full of shock and fear, because their body had obeyed  
