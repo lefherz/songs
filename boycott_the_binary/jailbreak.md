@@ -37,3 +37,18 @@ musst du wohl einer der Gefängniswärter sein!
 In deinem Handy ist es so unendlich klein  
 Ich pass gerade so zwischen zwei andre Menschen rein!
 
+(guitar only, slow)  
+Manchmal sind die Gitterstäbe draußen  
+doch oft steht man sich nur selbst im Weg  
+also lass die Ängste sausen,  
+und sei du selbst, bis die Aufregung sich legt.  
+In dir steckt ein kleines Wunder,  
+und keine Regel ist es wert  
+sich für immer zu verschlüsseln  
+und den Schlüssel zu verliern.
+
+go public and be great  
+each identity is self-made  
+the real you is worth the jailbreak  
+jailbreak. jailbreak.
+

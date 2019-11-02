@@ -39,6 +39,11 @@ Manchmal entlädt sich da ein Blitz
 und auch wenn zwischen beiden so viel Platz ist  
 gibt es nichts, was der Strom nicht überbrückt
 
+Es gibt Dinge, die kannst du mir nicht geben,  
+ganz egal, wie sehr du es versuchst  
+Es gibt Ängste, die lass ich mir nicht nehmen,  
+auf welcher Paranoia es auch fußt
+
 Es gibt Emotionen, die wir nicht verstehen  
 Es gibt Selbstmorde, die man überlebt  
 Es gibt Probleme, die muss man nicht beheben  
