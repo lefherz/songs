@@ -59,7 +59,7 @@ keine Regel ist es wert
 dass man sich nicht gegen sie wehrt!
 
 go public and be great  
-each identity is self-made  
-the real you is worth the jailbreak  
+Who you are is self-made  
+real you is worth the jailbreak  
 jailbreak. jailbreak.
 
