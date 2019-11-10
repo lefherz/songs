@@ -1,5 +1,12 @@
 # _paranoia
 
+```
+a|----ccc-|----888-|----7-9-|--9-a-a-|
+e|----aaa-|----666-|----7-9-|--7-8-8-|
+
+g|--------|e-e-f-e-|--------|--------|
+d|c-c---cc|--------|e-e---ec|e-e-f-e-|
+```
 
 Eben hattest du noch dein normales Leben  
 Eben konntest du dich noch frei bewegen  
