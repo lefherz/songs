@@ -20,15 +20,22 @@ Wird mein Segen da doch sicher voll genügen
 soll er doch nach Mekka laufen, soll er an sich selber glauben,  
 Und der alte Sack muss uns nicht mehr belügen
 
-Der Bäcker backt die Brote, doch er müsste nicht  
+Der Nerd, der schreibt die Zukunft, doch er müsste nicht  
 aber er ist nun mal grade hier  
-Der Bäcker backt die Brote, doch er müsste nicht  
-Dann backen das doch lieber Roboter!
+Der Nerd, der schreibt die Zukunft, doch er müsste nicht  
+Dann schreiben doch die Zukunft lieber wir!
 
-Brotbacken ist langweilig und immer gleich  
-Brotbacken ist fast so schlimm wie programmieren  
-Nur vom Brote backen wird doch niemand reich  
-Lassen wir das Brote backen den Maschinen
+Er sitzt alleine vor dem Rechner und designt die Welt  
+Dabei muss er da doch nicht alleine sitzen  
+wir machen die Welt zusammen wie sie uns gefällt  
+Während die da sich noch vor den Hackern schützen
+
+Ich schreibe die Protestsongs doch ich müsste nicht  
+Ich bin halt nur leider grade hier  
+Alleine hat ein Liedchen leider kein Gewicht  
+drum macht das mit dem Aufstand bitte ihr!
+
+---
 
 Der Staat macht die Gesetze, doch er müsste nicht  
 aber er ist nun mal grade hier  
@@ -40,16 +47,6 @@ Damit sie nicht selber drunter leiden müssen
 Ich hätte wirklich gern ein anderes System gewählt  
 Denn das in dem ich lebe hier ist echt beschissen
 
-Der Nerd, der schreibt die Zukunft, doch er müsste nicht  
-aber er ist nun mal grade hier  
-Der Nerd, der schreibt die Zukunft, doch er müsste nicht  
-Dann schreiben doch die Zukunft lieber wir!
-
-Er sitzt alleine vor dem Rechner und designt die Welt  
-Dabei muss er da doch nicht alleine sitzen  
-wir machen die Welt zusammen wie sie uns gefällt  
-Während die da sich noch vor den Hackern schützen
-
 Der Boss der macht die Regeln, doch er müsste nicht  
 aber er ist nun mal grade hier  
 Der Boss der macht die Regeln, doch er müsste nicht  
@@ -60,8 +57,14 @@ und sichert sie durch Amt und Polizei
 eh er fertig ist, uns zu kriminalisiern  
 müssen wir gemeinsam uns befreien!
 
-Ich schreibe die Protestsongs doch ich müsste nicht  
-Ich bin halt nur leider grade hier  
-Alleine hat ein Liedchen leider kein Gewicht  
-drum macht das mit dem Aufstand bitte ihr!
+Der Bäcker backt die Brote, doch er müsste nicht  
+aber er ist nun mal grade hier  
+Der Bäcker backt die Brote, doch er müsste nicht  
+Dann backen das doch lieber Roboter!
+
+Brotbacken ist langweilig und immer gleich  
+Brotbacken ist fast so schlimm wie programmieren  
+Nur vom Brote backen wird doch niemand reich  
+Lassen wir das Brote backen den Maschinen
+
 
