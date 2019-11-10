@@ -54,9 +54,9 @@ doch oft steht man sich nur selbst im Weg
 also lass die Ängste sausen,  
 und lass es zu, bis es sich legt.  
 In dir steckt ein kleines Wunder,  
-und keine Regel ist es wert  
-sich für immer zu verschlüsseln  
-und den Schlüssel zu verliern.
+Mit jedem Fehler wird es bunter  
+keine Regel ist es wert  
+dass man sich nicht gegen sie wehrt!
 
 go public and be great  
 each identity is self-made  
