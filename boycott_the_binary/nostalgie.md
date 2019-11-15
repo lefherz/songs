@@ -11,9 +11,9 @@ Heut sind wir nicht Alan Turing, sondern eher Elon Musk.
 
 
 Und ich frage mich, welche Zeit vermisst ihr nur?  
-  -  -  Euren Garten Eden gab es nie  
+  .  .  Euren Garten Eden gab es nie  
 Das goldene Zeitalter der Nerd-Hochkultur  
-  -  -  Ist nur Nostalgie, Nostalgie, Nostalgie
+  .  .  Ist nur Nostalgie, Nostalgie, Nostalgie
 
 
 In der grauen Vorzeit, ungefähr zur Zeit von System Shock  
