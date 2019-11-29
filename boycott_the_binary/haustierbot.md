@@ -2,7 +2,7 @@
 
 Robby Roboter ist so allein  
 Robby will nie mehr so einsam sein  
-Er sucht seich ne Familie mit Eigentumsbehausung  
+Es sucht seich ne Familie mit Eigentumsbehausung  
 Um sie zu kuscheln, und zu schnurren, und bei ihr Staub zu saugen
 
 Immer wenn es dreckig ist, roll ich durch die Gegend  
@@ -34,6 +34,6 @@ Ein Roboter muss stark sein, und darf nicht so viel fühlen
 
 Robby Roboter ist so allein  
 Robby will nie mehr so einsam sein  
-Er sucht sich nen Recyclinghof mit andren Aussortierten  
+Es sucht sich nen Recyclinghof mit andren Aussortierten  
 da könnn sie sich connecten und rum-experimentieren
 
