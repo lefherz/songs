@@ -1,5 +1,11 @@
 # _nostalgie
 
+```
+d|--------|--------|--------|--------|--------|--------|--------|--7-----|
+a|--a--9--|c--a--a9|--a--9--|c--a--97|--7--6--|9--7--79|--a--9--|-----a-9|
+e|00-00-00|-00-00--|00-00-00|-00-00--|55-55-55|-55-55--|88-88-80|77-77-7-|
+```
+
 Ich hatte nie nen Atari, und trotzdem vermiss ich ihn  
 Und auch nen C64 hab ich mir nie hart verdient  
 Vielleicht mit den Space Invaders hätt ich nie ein Spiel verloren  
@@ -7,13 +13,13 @@ Ich bin zwar nicht retro, aber auch in mir steckt noch ein Kind
 Früher waren wir Nerds noch allein im Internet  
 Da schien noch die Sonne und die Leute waren nett  
 All die wunderschönen Zeiten hab ich leider knapp verpasst  
-Heut sind wir nicht Alan Turing, sondern eher Elon Musk.
+Wir sind nicht mehr Alan Turing, sondern eher Elon Musk.
 
 
 Und ich frage mich, welche Zeit vermisst ihr nur?  
   .  .  Euren Garten Eden gab es nie  
 Das goldene Zeitalter der Nerd-Hochkultur  
-  .  .  Ist nur Nostalgie, Nostalgie, Nostalgie
+  .  .  Ist nur Nostalgie, Nostalgie
 
 
 In der grauen Vorzeit, ungefähr zur Zeit von System Shock  

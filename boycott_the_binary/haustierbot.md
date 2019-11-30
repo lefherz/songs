@@ -1,5 +1,15 @@
 # _haustierbot
 
+```
+g|--------|b-b-xbbb|c-c-xccc|--------|
+d|9-9-x999|b-b-xbbb|c-c-xccc|b-b-a-a-|
+a|9-9-x999|9-9-x999|a-a-xaaa|b-b-a-a-|
+e|7-7-x777|--------|--------|9-9-8-8-|
+
+g|--7-6-9-|8-7-6---|--------|--------|
+d|--------|------9-|7-8-9-7-|9---9^^-|
+```
+
 Robby Roboter ist so allein  
 Robby will nie mehr so einsam sein  
 Es sucht seich ne Familie mit Eigentumsbehausung  
