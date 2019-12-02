@@ -1,5 +1,15 @@
 # _deserter
 
+```
+d|----4---|----4-4-|----4---|--------|
+a|---5-5--|---5----|---5-5--|--------|
+e|77----7-|55------|44----4-|33-32-5-|
+
+b|cc-cc-c-|aa-aa-a-|99-99-9-|77-77-7-|
+g|bb-bb-b-|99-99-9-|99-99-9-|77-77-7-|
+d|99-99-9-|77-77-7-|66-66-6-|55-55-5-|
+```
+
 
 not all humans are born equal, some are born to become more  
 shill was such a child, though sickly, cute as all the children are  

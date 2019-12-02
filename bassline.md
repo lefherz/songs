@@ -1,11 +1,5 @@
 some random basslines:
 
-```
-d|----4---|----4-4-|----4---|--------|
-a|---5-5--|---5----|---5-5--|--------|
-e|77----7-|55------|44----4-|33-32-5-|
-```
-
 this one sounds nicer actually if you play it 5 tones higher:
 
 ```
