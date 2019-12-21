@@ -27,7 +27,7 @@ und erst wenn die Klampfe brennt
 bin ich wirklich ungehemmt!
 
 Viking Metal mag ich nicht, ich glaube nicht an Thor  
-Speed Metal ist zu laut und schnell für mein Ohr  
+Speed Metal ist zu schnell für meinen Prozessor   
 Ich mag kein True Metal, Wahrheit ist nicht so zu fesseln  
 Power Metal mag ich nicht, das klingt so nach True Metal  
 Doom Metal mag ich nicht, ich komme in den Himmel  
