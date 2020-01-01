@@ -16,8 +16,8 @@ im Innern gibt es Nischen, in denen zwar nichts lebt,
 doch kein Berg kann so alt sein ohne dass ne Kluft entsteht  
 drin klettert, das Wasser, es ist weich, es ist vernetzt  
 und als es ihm zu kalt wird in dem Berg den es zersetzt  
-da muss es explodieren! Der Berg kann sich nicht bewegen  
-und so wird er von dem freiwerdenden Wasser zerfetzt!
+da muss es explodieren! Der Berg ist viel zu starr  
+und so wird er vom freiwerdenden Wasser zerfetzt!
 
 
 
