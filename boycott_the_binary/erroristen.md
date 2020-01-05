@@ -3,6 +3,16 @@
 Lyrics: phant  
 Lizenz: CC BY 4.0
 
+```
+d|--------|a-9-7---|--------|9-7-----|
+a|a-9-7---|------a-|9-7-6---|----a-7-|
+e|------7-|--------|------7-|--------|
+
+b|5---5-xx|8---8-xx|a---a--x|a-------|a---a-xx|8---8-xx|5---5--x|5-------|
+g|4---4-xx|7---7-xx|9---9--x|9-------|9---9-xx|7---7-xx|4---4--x|4-------|
+d|2---2-xx|5---5-xx|7---7--x|7-------|7---7-xx|5---5-xx|2---2--x|2-------|
+```
+
 Wir sind alle Erroristen! Ihr sagt wir sind das Problem  
 Wir sagen das sind wir gerne, es braucht Fehler im System  
 Ihr sagt wir sind Egoisten und wir schaden der Gemeinschaft  
