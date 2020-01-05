@@ -1,5 +1,17 @@
 # _raster
 
+```
+e|--------|--------|--------|----7---|
+b|--b-----|--9-----|--b---9-|--7-7---|
+g|-b------|-9------|-b---9--|-7--7---|
+d|9-------|7-------|9---7---|5---5---|
+
+e|--------|--------|--------|--------|-         -|7-777-77777777xxxxxx|
+b|b-b-----|b-b-----|9-9-----|9-9-----|- repeat  -|7-777-77777777xxxxxx|
+g|b-b-----|b-b-----|9-9-----|9-9-----|- 4 times -|7-777-77777777xxxxxx|
+d|9-9-----|9-9-----|7-7-----|7-7-----|-         -|5-555-55555555xxxxxx|
+```
+
 Ich bin fremd und fehl am Platze? Ich erober eure Welt!  
 Und das was mir nicht gefällt, mache ich mir untertan!  
 Ihr sagt, das sei ne Psychose, doch all eure Doktorkittel  
