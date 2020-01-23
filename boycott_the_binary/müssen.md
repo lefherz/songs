@@ -1,5 +1,11 @@
 # _müssen
 
+```
+e|9-9bc-b9|b--74---|4-579-75|4---------|9-9bc-b9|b--74---|5-557-57|9---------|
+
+C# G# A/B C#
+```
+
 Mutter ist am Kochen, doch sie müsste nicht  
 aber sie ist nun mal grade hier  
 Die Mutter ist am Kochen, doch sie müsste nicht  
