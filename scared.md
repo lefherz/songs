@@ -1,11 +1,18 @@
 # Scared to be a Singer
 
+A			E		f#  
 But I guess I'm just too scared to be a singer.  
+  D                              E  
 I hope somebody's weeping for my soul, because  
+  D				   A  
 I never see much more there than a hole.  
+            Adim              D					b' 
 and I'm too busy weeping for Allende, and the children born to Brexit,  
+                      c#'  
 and all the girls who never learned to read  
+    f#				   D  
 And if there was a problem which affects me,  
+			E				A  
 I would just return to books, pretending I'm not one to feel.
 
 I guess I'm just too scared to be a rebel.  
