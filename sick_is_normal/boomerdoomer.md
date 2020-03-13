@@ -32,6 +32,6 @@ die Verlierer dieser Krise werden nicht die Alten sein
 sie stecken nur im Krankenhaus ihre Pflegerinnen an.  
 Statt Kliniken aufzurüsten, Care Work sinnvoll zu bezahlen,  
 gehen Pfleger leer aus, und die Wirtschaft kriegt Milliarden.  
-Gegen Manager und Lobby hilft kein Infektionsverdacht
+Gegen Manager und Lobby hilft kein Infektionsverdacht  
 Keine Krise, die Kapitalismus nicht noch schlimmmer macht!
 
