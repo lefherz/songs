@@ -1,3 +1,5 @@
+# _virus
+
 Gitarre und Bass in Drop-D-Stimmung.
 Strophen im 3/4-Takt, d gedämpft, B und A offen.
 Bridge nur einzelne Schläge, dann mit 2 schlägen wiederholen.
