@@ -20,4 +20,8 @@ da muss es explodieren! Der Berg ist viel zu starr
 und so wird er vom freiwerdenden Wasser zerfetzt!
 
 
+man kann Nischen nicht zählen,
+weil sie alle anders aussehen
+
+
 
