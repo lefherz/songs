@@ -1,5 +1,11 @@
 # Nische
 
+```
+d|--------|--------|--------|----8---|
+a|--b-c-b-|--b-c-b-|--9-7-9-|--9-----|
+e|99-9-9-9|88-8-8-8|77-7-7-7|66-6--6-|
+```
+
 Der Zaun besteht aus Nischen - Es sind der Leute tausend,  
 und obwohl er mehr aus Löchern als aus Draht besteht  
 er hält die Meute draußen,  
@@ -20,8 +26,13 @@ da muss es explodieren! Der Berg ist viel zu starr
 und so wird er vom freiwerdenden Wasser zerfetzt!
 
 
-man kann Nischen nicht zählen,
-weil sie alle anders aussehen
-
+Der Mann wurde beauftragt, jede Nische zu notieren,  
+die die Gehwegbordsteinkante zum Bordstein definiert.  
+Klar gibt er sich Mühe, und er schaut ganz genau hin,  
+In welcher wieviel Unkraut wächst, und was da so floriert.  
+Doch was ist schon ne Nische, zähln die Ameisen dazu?  
+Braucht es eine Lücke, einen Riss, einen Sinn?  
+Warum der Chef das wissen will ist fraglich ohnehin, dass es  
+Zweihundertdrölf-Zwei-Drittel und ein paar Zerquetschte sind
 
 
