@@ -1,5 +1,8 @@
 # _sk8rNB
 
+Tabs: sk8er boi von Avril Lavigne
+Video: das Video in Minecraft nachstellen? Mit Karaoke-Zeilen drunter!
+
 It was nonbinary  
 **they were nonbinary**  
 Can I make it anymore obvious?  
