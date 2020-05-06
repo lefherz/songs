@@ -12,3 +12,11 @@ Bald schon lerntest Du
 Männer dürfen niemals weinen
 bald schon lerntest Du
 Männer müssen Stärke zeigen
+
+
+Umkleidekabine duschen etc
+
+Schwulenpornosammlung deines Vaters
+
+Junge, warum hast du nichts gelernt?
+
