@@ -6,12 +6,28 @@ Seiten aus dem Weg gehn
 Immer schon solltest Du
 immerzu perfekt sein
 Dabei wolltest Du
-nur (endlich) nicht mehr versteckt sein
+nur nicht mehr versteckt sein
 
 Bald schon lerntest Du
 Männer dürfen niemals weinen
 bald schon lerntest Du
 Männer müssen Stärke zeigen
+
+Sportverein, Körper stähln
+Wer hier ist der Allerbeste
+Punkte und Trophäen zähln
+Für Andere bleiben nur Reste
+
+Immer schon schautest Du
+in der Umkleidekabine
+Heimlich deinen Freunden zu
+und verteiltest Seitenhiebe
+
+Schwul ist der, der Schwules tut
+(Schwach ist der, der Schwaches tut)
+Selbstschutz durch Macho-Sprüche
+Frei zu sein erfordert Mut
+Du stemmst lieber nur Gewichte
 
 
 Umkleidekabine duschen etc
