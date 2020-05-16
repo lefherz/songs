@@ -11,7 +11,7 @@ e|33333333|22222222|11111111|00000000|
 Like a bad, bad dream  
 We were washing our hands,  
 We forgot our demands,  
-And now we got a next chance
+how far away does it seem
 
 I woke up from a dream, where the people kept their distance  
 Half the people working, Half the people were just bored  
@@ -38,7 +38,7 @@ Half the people working, Half the people were ignored
 Everyone afraid, everyone hated the system  
 From a place of privilege they barely could afford  
 If they had not forced me awake I would have thought it real  
-The money, credit, cops and all the methods to enforce them  
+The money, gender, laws and all the methods to enforce them  
 And I remember clearly, how important did it feel  
 I'm wondering, how sick was our normal
 
