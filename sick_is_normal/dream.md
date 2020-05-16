@@ -27,6 +27,12 @@ We were keeping apart,
 we made living an art  
 And now we found our heart
 
+```
+d|--------|-----35-|-------3|5-------|--5---7-|--8---a-|--------|----------------|
+a|-310-0--|-310----|-53--35-|--------|--5---7-|--8---a-|a8ba----|----------------|
+e|3---1-31|3---1---|3--65---|--------|333-555-|666-888-|----a8ba|b-a-8-a86-5-3---|
+```
+
 I woke up from a dream, where the people kept their distance  
 Half the people working, Half the people were ignored  
 Everyone afraid, everyone hated the system  
