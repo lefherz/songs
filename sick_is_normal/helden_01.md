@@ -23,11 +23,21 @@ in der Umkleidekabine
 Heimlich deinen Freunden zu
 und verteiltest Seitenhiebe
 
-Schwul ist der, der Schwules tut
-(Schwach ist der, der Schwaches tut)
+Schwach ist der, der Schwaches tut
 Selbstschutz durch Macho-Sprüche
 Frei zu sein erfordert Mut
 Du stemmst lieber nur Gewichte
+
+Die Erwartungen
+machen dich langsam fertig
+Du fühlst dich nicht groß und stark
+sondern klein und minderwertig
+
+Ich hoff, Du schaffst es
+deiner Rolle zu entfliehn
+Ich hoff, Du schaffst es
+Dich da nochmal rauszuziehen
+
 
 
 Umkleidekabine duschen etc
