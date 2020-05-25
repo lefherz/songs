@@ -40,9 +40,17 @@ Dich da nochmal rauszuziehen
 
 
 
-Umkleidekabine duschen etc
-
-Schwulenpornosammlung deines Vaters
-
 Junge, warum hast du nichts gelernt?
+
+Heldentum ist das Versprechen, dass man ein Problem mit Gewalt lösen kann
+
+Bereit sich aufzuopfern, egal wer einen vermissen würde
+
+Was macht dich zum Auserwählten?
+
+Harry Potter, Frodo, Luke Skywalker, Ned Stark
+
+Was ist das Ziel? Fehlt ihm genau das vielleicht?
+
+Allzeit bereit
 

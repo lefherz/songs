@@ -1,7 +1,7 @@
 Warum bist Du geschminkt? Das ist doch gegen den Instinkt
 Warum sind deine Haare pink? Jungs sind doch blau blau blau
 Was soll der Lippenstift? Gehst Du damit wohl auf den Strich?
-Fischt Du nach Aufmerksamkeit? Bist Du Mann oder Frau?
+Fischt Du nach Aufmerksamkeit? Bist Du ein Mann oder ne Frau?
 
 Wenn Alle wär'n wie ihr dann gäb es keine Kinder hier
 Küsst euch gefälligst nicht vor mir, das macht mir Angst Angst Angst
