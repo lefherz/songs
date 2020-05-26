@@ -1,5 +1,9 @@
 # Heldentum
 
+```
+f c# g# d#
+```
+
 Deutschland - wo sind deine Helden hin?  
 hast du noch denselben Sinn?  
 alle passen auf - wir alle sind allein  
@@ -31,7 +35,7 @@ Du meldest dem Chefarzt, damit er den nächsten holt
 noch einmal die Windel wechseln, eine auf die Schüssel setzen,  
 höchstens fünf Minuten ist das oberste Gebot.  
 Du fragst dich, kann man je ein Leben retten.  
-Oder ist das Leben dadurch etwas länger in Ketten,  
+Oder ist das Leben dadurch länger in Ketten,  
 damals als die Mutter starb, wurde dir als erstes klar,  
 das das letzte Jahr kein Geschenk der Gnade war.  
 Und zuhause diese Punker, haben keinerlei Respekt.  
