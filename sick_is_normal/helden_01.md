@@ -1,43 +1,60 @@
-Immer schon solltest Du
-auf Seite der Gewinner stehn
-Eigentlich wolltest Du
-Seiten aus dem Weg gehn
+Schon als Junge sahst Du
+Superman die Welt retten
+Meerjungfrauen wären schön
+wenn sie dicke Waffen hätten
 
-Immer schon solltest Du
-immerzu perfekt sein
-Dabei wolltest Du
-nur nicht mehr versteckt sein
+Als Kind wolltest Du
+auch mal mit Puppen spielen
+Das gefiel den Eltern nicht
+Jungs muss man zum Held erziehen
 
 Bald schon lerntest Du
 Männer dürfen niemals weinen
 bald schon lerntest Du
 Männer müssen Stärke zeigen
+Bald schon lerntest Du
+Männer dürfen niemals weinen
+bald schon lerntest Du
+Männer müssen Stärke zeigen
 
-Sportverein, Körper stähln
-Wer hier ist der Allerbeste
-Punkte und Trophäen zähln
-Für Andere bleiben nur Reste
+Batman, John McClane
+versuchst so wie sie sein
+Wissen immer was zu tun ist
+Akzeptieren nie ein Nein 
 
-Immer schon schautest Du
-in der Umkleidekabine
-Heimlich deinen Freunden zu
-und verteiltest Seitenhiebe
+Harry Potter, Frodo, Luke
+Stellen sich jeder Gefahr
+Auch wenn sie's nicht überleben
+Helden sind zum Opfern da
 
-Schwach ist der, der Schwaches tut
-Selbstschutz durch Macho-Sprüche
-Frei zu sein erfordert Mut
-Du stemmst lieber nur Gewichte
+Helden haben
+immer eine Aufgabe
+Das Ziel ist klar definiert
+Stellen keine Sinnfrage
 
-Die Erwartungen
+Kein Problem dass
+für dich nicht zu lösen wär
+Wenn es sein muss mit Gewalt
+Bereuen kannst Du hinterher
+
+So lebst Du nun
+allzeit bereit zum Heldentum
+Doch der Alltag
+verspricht weder Glanz noch Ruhm
+
+Ziellos wartest
+Du darauf gebraucht zu werden
+Bonn ist nun mal
+kein Gotham und kein Mittelerde
+
+-----------------------------------
+
+(Dieser Umstand
 machen dich langsam fertig
 Du fühlst dich nicht groß und stark
-sondern klein und minderwertig
+sondern klein und minderwertig)
 
-Ich hoff, Du schaffst es
-deiner Rolle zu entfliehn
-Ich hoff, Du schaffst es
-Dich da nochmal rauszuziehen
-
+------------------------------------
 
 
 Junge, warum hast du nichts gelernt?
