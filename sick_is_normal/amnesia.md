@@ -26,24 +26,42 @@ Erinner mich an Flaschen und an die Polizei
 
 War gestern nicht 'ne Feier?
 In irgend'ner WG
-Immer die gleiche Leiher. So langsam tut es weh.
+Weiß nicht mehr wer dabei war, egal, vergess ich eh
+
+Bekomme eine Nachricht
+Du sagst ich war scheiße drauf
+Die alte Schuldspirale nimmt munter ihren Lauf
 
 --------------------------
 
 Am Anfang war's noch witzig doch nun bin ich's Leid
 Du hast geschmeckt nach Abenteuer und Freiheit
 Mein Mittel gegen Angst und gegen Einsamkeit
-Wir hatten lange Spaß trotz deiner Bitterkeit
+Wir hatten lange Spaß doch nun geht's mir zu weit
+
+Hab keine Lust zu trinken doch jetzt setzt das Zittern ein
+Wollt nur 2 Bier zum Kontern jetzt sauf ich 2 Flaschen Wein
+Tagsüber ging's mir prima, nun werd ich depressiv
+Meistens bin ich glücklich doch nach 10 Bier läuft was schief
 
 ------------------------
 
-Ich will auch keinen Streit
-doch ich muss langsam los
-Ich bin noch nicht so weit dass ich mit
+Ist Lust auf Rausch natürlich?
+Nüchternheit Illusion?
+Rausch ich nur zu ausführlich? Bin den Exzess gewohnt
 
-Alkohol umgehn kann
-drum lass ich's lieber ganz 
-Aber euch wünsch ich einen schönen Tanz
+Ist Sucht nach Rausch 'ne Krankheit?
+Oder 'ne Tradition?
+Ist mir jetzt auch egal, in Phantland herrscht Prohibition
+
+Vielleicht lern ich irgendwann
+wie ich mit Alk umgehen kann
+Doch ich bin lang noch nicht so weit
+
+Für mich war es höchste Zeit
+Drum lass ich's lieber ganz
+Doch euch wünsch ich 'nen schönen Tanz
+
 
 
 
