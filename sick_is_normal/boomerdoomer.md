@@ -1,5 +1,10 @@
 # _boomerdoomer
 
+```
+e|-4-4-4-4|-3-3-3-3|6-6-3-3-|4-4-3-3-|1
+a|6-6-6-6-|4-4-4-4-|4-4-4-4-|4-4-4-4-|1
+```
+
 Studenten müssen weinen, dass das Schicksal keinen Marx liest  
 dumm, dass das Subjekt dieser Revolte nur ein Virus ist  
 *Der POTUS muss jetzt bangen, kann im Winter keine Hände schütteln*  
