@@ -1,3 +1,8 @@
+# _bedenken
+
+Lyrics: phant  
+Lizenz: CC BY 4.0
+
 Denken denken denken
 überlegen über's Leben
 über heute morgen gestern

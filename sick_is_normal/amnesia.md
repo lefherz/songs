@@ -1,3 +1,8 @@
+# _amnesia
+
+Lyrics: phant  
+Lizenz: CC BY 4.0
+
 Die Sonne lacht mich aus  
 ich lach müde zurück  
 Rappel mich langsam auf & wage einen Blick

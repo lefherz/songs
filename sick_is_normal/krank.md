@@ -1,3 +1,8 @@
+# _krank
+
+Lyrics: phant  
+Lizenz: CC BY 4.0
+
 Warum bist Du geschminkt? Das ist doch gegen den Instinkt
 Warum sind deine Haare pink? Jungs sind doch blau blau blau
 Was soll der Lippenstift? Gehst Du damit wohl auf den Strich?

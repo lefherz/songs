@@ -1,5 +1,7 @@
 # _sk8rNB
 
+Lyrics: phant & M  
+Lizenz: CC BY 4.0
 Tabs: sk8er boi von Avril Lavigne
 Video: das Video in Minecraft nachstellen? Mit Karaoke-Zeilen drunter!
 

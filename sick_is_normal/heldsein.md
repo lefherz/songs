@@ -1,3 +1,8 @@
+# _heldsein
+
+Lyrics: phant  
+Lizenz: CC BY 4.0
+
 Schon als Junge sahst Du
 Superman die Welt retten
 Meerjungfrauen wären schön
