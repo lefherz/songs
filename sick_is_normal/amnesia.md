@@ -55,9 +55,9 @@ Vielleicht lern ich irgendwann
 wie ich mit Alk umgehen kann  
 Doch das dauert noch lang, ich bin noch nicht so weit
 
-Für mich war es höchste Zeit  
+Für mich war's höchste Zeit  
 Drum lass ich's lieber ganz  
-Aber euch viel Spaß noch, bei eurem Tanz
+Ich tanze manchmal Pogo aber keinen Toten-Tanz
 
 Ist Lust auf Rausch natürlich?  
 und Nüchternheit unwirklich?  
