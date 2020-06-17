@@ -3,6 +3,18 @@
 Lyrics: phant  
 Lizenz: CC BY 4.0
 
+```
+e|-8---a--|-a----b-|
+h|8--8b-ba|9---9---|
+
+g|cccc8888|77777777|88888888|aaaaaaaa|ccccccc-|88888a8-|7777777-|aaaaaaa-|
+d|aaaaaaaa|88888888|77777777|77777777|aaaaaaa-|aaaaaaa-|8888888-|8888888-|
+
+e|-b-b-b-b|-8-8-8--|-b-b-b-b|8-8-----|
+h|b-----b-|a-----a-|9-----9-|9-9-----|
+```
+
+
 Denken denken denken
 überlegen über's Leben
 über heute morgen gestern

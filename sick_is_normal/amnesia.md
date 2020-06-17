@@ -3,6 +3,20 @@
 Lyrics: phant  
 Lizenz: CC BY 4.0
 
+```
+e|-------d|ba------|
+h|--------|--b-----|
+g|--------|---ca---|
+
+e|a-a--aaa|a-a--ada|
+h|b-b--bdb|b-b--bbb|
+g|c-c--ccc|a-a--aaa|
+
+e|--a---a-|--a---d-|
+h|-b-b-d-d|-b-b-b-b|
+g|c---c---|a---a---|
+```
+
 Die Sonne lacht mich aus  
 ich lach müde zurück  
 Rappel mich langsam auf & wage einen Blick
