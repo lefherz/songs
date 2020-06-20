@@ -2,6 +2,10 @@
 
 ```
 f c# g# d#
+f c# b  c
+
+g|--------|--------|--8-9-8-|--8-6-8-|
+d|88a8aba8|77a7aba7|66-6-6-6|55-5-5-5|
 ```
 
 Deutschland - wo sind deine Helden hin?  
