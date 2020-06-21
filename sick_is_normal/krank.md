@@ -3,6 +3,12 @@
 Lyrics: phant  
 Lizenz: CC BY 4.0
 
+```
+e|--8-----|--7-----|--a---7-|--87----|
+h|-8------|-8------|-8--8---|8---a8--|
+g|9-------|9-------|7----7--|-7------|
+```
+
 Warum bist Du geschminkt? Das ist doch gegen den Instinkt
 Warum sind deine Haare pink? Jungs sind doch blau blau blau
 Was soll der Lippenstift? Gehst Du damit wohl auf den Strich?
