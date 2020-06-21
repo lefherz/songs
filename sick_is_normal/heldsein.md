@@ -3,15 +3,33 @@
 Lyrics: phant  
 Lizenz: CC BY 4.0
 
-Schon als Junge sahst Du
-Superman die Welt retten
-Meerjungfrauen wären schön
-wenn sie dicke Waffen hätten
+```
+g|a---7--8|----5-4-|5
+d|--------|--------|-
+a|8---5--6|----3-2-|3
+
+g|4-7-5---|
+d|--------|
+a|2-5-3---|
+
+g|aaaa7777|88885544|5
+d|aaaa7777|88885544|5
+a|88885555|66663322|3
+
+e|--a---d-|--b---b-|
+h|-b-b-b-b|-d-d-d-d|
+g|c---c---|c---c---|
+```
 
 Als Kind wolltest Du
 auch mal mit Puppen spielen
 Das gefiel den Eltern nicht
 Jungs muss man zum Held erziehen
+
+Schon als Junge sahst Du
+Superman die Welt retten
+Meerjungfrauen wären schön
+wenn sie dicke Waffen hätten
 
 Bald schon lerntest Du
 Männer dürfen niemals weinen
