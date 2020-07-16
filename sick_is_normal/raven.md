@@ -8,7 +8,7 @@ Knall dich voll mit Pep & Techno
 Eskapismus ist der Shit
 
 Wer hier kann am besten Tanzen?  
-Wer hier schaut am tollsten aus?  
+Wer hier sieht am tollsten aus?  
 Hey, hast Du kein Selbstbewusstsein?  
 Dann bleib lieber gleich zuhaus
 
