@@ -1,5 +1,12 @@
 # _micha
 
+```
+  G	   D	    D#	     F
+h|----1-2-|----1-2-|----1-2-|--------|
+g|0030-0-0|-030-0-0|-030-0-0|--2-3-2-|
+d|--------|--------|--------|33-3----|
+```
+
 am Anfang war der Tunnel und am Ende war das Licht.
 Micha weiß nicht mehr ob er gebremst hat oder nicht
 Durch die Lider weckt ihn schwach der Widerhall von Neon
