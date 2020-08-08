@@ -1,8 +1,10 @@
 # Asphalt
 
 ```
-a   F   C   E
+Strophe:
+a   F   C   E (4x)
 
+Refrain:
 F   G	a
 F   G	a   E
 F   G	a
