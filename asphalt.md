@@ -13,7 +13,7 @@ E	E7
 
 Im Frühling konnten wir schon mal am neuen Morgen schnuppern  
 die Kontis hatten frei und alle Straßen waren leer  
-Wenn das letzte Ticket oder Führerschein verbrannt ist  
+Wenn der letzte Fahrschein oder Führerschein verbrannt ist  
 braucht es keine Ampeln oder Autobahnen mehr
 
 Ich dachte immer, Zivilisation braucht eine U-Bahn  
@@ -26,7 +26,7 @@ Und immerhin, Asphalt behandelt alle gleich.
 Doch für eure Raster sind wir zu verschieden,  
 Als dass uns eure portionierte Luft zum Atmen reicht!
 
-Manchmal sieht man den Wald vor läuter Träumen nicht  
+Manchmal sieht man den Wald vor lauter Träumen nicht  
 Und in einem Baumhaus, da vergisst man den Asphalt  
 Hier im Schatten eurer Polizeistaat-Dystopie  
 Da bauen wir ne Perspektive ohne Staatsgewalt
