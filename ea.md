@@ -26,9 +26,9 @@ so call me maybe!
 
 E E H7 E
 
-Ich schlage gerne Schaufenster in Luxusläden ein. was dann, was dann?
-Ich zünde Autos an die ich mir nicht leisten kann. Was dann, was dann?
-Dann such ich schnell da Weite, es rücken Bullen an. Was dann. was dann?
+Ich schlage gerne Schaufenster in Luxusläden ein. was dann, was dann?  
+Ich zünde Autos an die ich mir nicht leisten kann. Was dann, was dann?  
+Dann such ich schnell da Weite, es rücken Bullen an. Was dann. was dann?  
 Dann ruf ich an, denn sie haben uns gekesselt - geht ran, geht ran!
 
 Dann ruf ich an, hab das Weglaufen verschissen, der Geduldsfaden gerissen, jemand sollte davon wissen: 
