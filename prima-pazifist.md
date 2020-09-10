@@ -30,3 +30,12 @@ merkt ihr denn nicht alle, wie friedlich es hier ist
 Nehmen wir uns bei der Hand und drehen uns im Kreis  
 ob Bullen oder Nazis, lilablassblau oder weiß!
 
+Und weil ich so friedlich bin, geh ich zur Polizei  
+Nichts sagt so sehr Pazifist wie uniform und prügeln  
+Wenn alle uns gehorchen, dann wird endlich Frieden sein  
+Weil wir den Frieden schützen und über Gewalt verfügen  
+Und wenn du hier geboren bist, dann bist du praktisch frei  
+In unserm Land herrscht Frieden und hier kannst du ihn genießen  
+Ich hoffe du bist friedlich und ich hoffe du bist weiß  
+Denn wenn du hier nicht reinpasst müssen wir dich wohl verbiegen
+
