@@ -35,7 +35,7 @@ those left in Exarcheia, and everyone who ditches her hijab
 I guess the revolution can be happy that it's not happening here,  
 at least now it's not up to me.
 
-I hope I'm not too scared to be an enby.  
+I hope I'm not too scared to be nonbinary.  
 sometimes I walk around just in a dress  
 though I'm not sure at all it's for my best.  
 And I could worry 'bout the german pronouns, about workplace applications,  
