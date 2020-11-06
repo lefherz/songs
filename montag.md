@@ -28,6 +28,15 @@ dass die Arbeit dir gefällt
 ich kenn da nen Roboter,  
 der will dafür nicht mal Geld.
 
+Wäre ich ne Katze,  
+wär mir alles scheißegal  
+ich würde morgens liegen bleiben,  
+ihr könnt mich alle mal!  
+Ich hätte kein Handy,  
+denn ich wär ja nur ein Tier  
+doch ich bin ein Mensch  
+und Technik ist ein Teil von mir
+
 Wer sind hier die Sklaven?  
 Die Maschinen oder wir?  
 Wir befehlen und sie  
