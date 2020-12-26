@@ -18,38 +18,40 @@ Hitler gewählt
 
 Weltuntergang
 
+Vogellied
+
+Täter
+
+Scared
+
 Clyde²
+
+Asphalt
 
 Krätze
 
-Sonnenfinsternis
+Märchenprinz
 
 Liebe mich
 
+Sonnenfinsternis
+
 Virus
-
-Priester vermissen Höschen
-
-Märchenprinz
-
-Prostitution verzehrt Herzen
-
-Kannst du mit diesen Zähnen küssen
-
-Stier & Stier
-
-Der Blick
 
 Spannung
 
+Der Blick
+
 Vernichtungsphantasie
 
-Kaktus
+Nische
 
 Ampeln
 
-Vogellied
+Winde
 
 Zugabe: Letzte Worte
 
 Zugabe: Grölen
+
+
