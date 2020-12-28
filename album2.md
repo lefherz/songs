@@ -8,7 +8,7 @@
 6. Winde
 7. Scared
 8. Spannung
-9. Stillstand
+9. Gitter
 10. Ampeln
 11. Priester
 12. Novize
