@@ -23,7 +23,7 @@ But I guess I'm just too scared to be a singer.
 I hope somebody's weeping for my soul, because  
 I've never seen much more there than a hole.  
 and I'm too busy weeping for Allende, and the children born to Brexit,  
-and all the girls who never learned to read  
+and every girl who never learned to read  
 And if there was a problem which affects me,  
 I would just return to books, pretending I'm not one to feel.
 
@@ -31,7 +31,7 @@ I guess I'm just too scared to be a rebel.
 I only see the stuff that I could lose, 
 and never what they have already taken.  
 I'm fearing for the frontliners of Hong Kong,  
-those left in Exarcheia, and everyone who ditches her hijab  
+those left in Exarcheia, and everyone who ditches their hijab  
 I guess the revolution can be happy that it's not happening here,  
 at least now it's not up to me.
 
@@ -40,7 +40,7 @@ sometimes I walk around just in a dress
 though I'm not sure at all it's for my best.  
 And I could worry 'bout the german pronouns, about workplace applications,  
 and what the fascists do when they're in power -  
-but today I'm wearing lipstick and inventing a new word,  
+but now I'm wearing lipstick while inventing a new word,  
 and I know happiness is just a sleeveless shirt.
 
 I'm suprised, but I am not too scared to sing.  
@@ -54,6 +54,6 @@ I always bring a glass, to capture tears when they're still wet
 and lock them up in lines, in a verse and in a metrum.  
 So if you need a song, maybe to fill your soul with petrol,  
 or to crush a hope, or to find out where you belong,  
-for tears, a glass is just another prison to get out  
+for tears, a glass is just another prison to break out  
 and tears are not afraid of being wrong.
 
