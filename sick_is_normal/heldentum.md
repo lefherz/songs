@@ -8,15 +8,6 @@ g|--------|--------|--8-9-8-|--8-6-8-|
 d|88a8aba8|77a7aba7|66-6-6-6|55-5-5-5|
 ```
 
-Deutschland - wo sind deine Helden hin?  
-hast du noch denselben Sinn?  
-alle passen auf - wir alle sind allein  
-pendeln zwischen Eckkneipe und Eigenheim  
-Deutschland - wer gibt allen was zu tun?  
-Wer rettet dein Heldentum?  
-Wisch die Tränen weg, gib den harten Mann,  
-damit auch noch morgen früh die Bahnen fahrn
-
 Fünf Tage die Woche knechten, zwei mit der Familie  
 du kaufst deiner Mutter eine Lilie  
 Als du sie besuchst hast du ein Ohr an ihrer Wand
@@ -33,6 +24,15 @@ Als sie die Fabrik schließen, dann die böse Ahnung
 der Vermieter schickt die erste Mahnung  
 du sitzt da und seufzt, sammelst für den Ofen Holz  
 Der Soli aufm Konto drückt dir auf den Stolz.
+
+Deutschland - wo sind deine Helden hin?  
+hast du noch denselben Sinn?  
+alle passen auf - wir alle sind allein  
+pendeln zwischen Eckkneipe und Eigenheim  
+Deutschland - wer gibt allen was zu tun?  
+Wer rettet dein Heldentum?  
+Wisch die Tränen weg, gib den harten Mann,  
+damit auch noch morgen früh die Bahnen fahrn
 
 Als du ihn im Bett findest, ist er bereits tot.  
 Du meldest dem Chefarzt, damit er den nächsten holt  
