@@ -25,7 +25,7 @@ Dann \_micha, \_täter, \_nischen, halt die düsteren Songs
 
 Und dann noch 2-3 solarpunk-Tracks? 
 Einen Track, der Solarpunk definiert.
-Einen über Utopie, die Versöhnung mit der Gemeinschaft
+Einen über Utopie, die Versöhnung mit der Gemeinschaft (\_puzzle?)
 
 Und dann einen zum ausklingen. Man könnte auch \_weltuntergang oder das
 \_zerstörungslied erst am Ende bringen.
