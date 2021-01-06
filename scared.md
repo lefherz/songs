@@ -28,7 +28,7 @@ And if there was a problem which affects me,
 I would just return to books, pretending I'm not one to feel.
 
 I guess I'm just too scared to be a rebel.  
-I only see the stuff that I could lose, 
+I only see the things that I could lose, 
 and never what they have already taken.  
 I'm fearing for the frontliners of Hong Kong,  
 those left in Exarcheia, and everyone who ditches their hijab  
