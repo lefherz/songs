@@ -1,6 +1,6 @@
 Qua-rant-ä-ne  
-raven ohne rausgehen  
-raven ohne rausgehen
+raven ohne rausgehen!  
+raven ohne rausgehen!
 
 Jeden Abend ist 'ne Party  
 Bring doch gute Laune mit  
@@ -13,8 +13,8 @@ Hey, hast Du kein Selbstbewusstsein?
 Dann bleib lieber gleich zuhaus
 
 Qua-rant-ä-ne  
-raven ohne rausgehen  
-raven ohne rausgehen
+raven ohne rausgehen!   
+raven ohne rausgehen!
 
 Dein Körper darf nicht schlapp machen  
 Zieh dir besser noch 'ne Line  
@@ -27,8 +27,8 @@ Riecht nach Bier und Schweiß und Pisse
 Und nach schlechtem Aftershave
 
 Qua-rant-ä-ne
-raven ohne rausgehen
-raven ohne rausgehen
+raven ohne rausgehen!  
+raven ohne rausgehen!
 
 Ich muss nie mehr mit dem Auto  
 tief bis in die Pampa ziehn  
@@ -41,8 +41,8 @@ Niemand muss mehr Psytrance hören,
 alle hören, was sie wollen
 
 Qua-rant-ä-ne
-raven ohne rausgehen
-raven ohne rausgehen
+raven ohne rausgehen!  
+raven ohne rausgehen!
 
 Hört doch auf euch nachzuahmen  
 kommt mit in den Cyberspace  
@@ -55,7 +55,7 @@ wem mein Avatar nicht passt
 kann sich ja vom Server trollen
 
 Qua-rant-ä-ne
-raven ohne rausgehen
-raven ohne rausgehen
+raven ohne rausgehen!  
+raven ohne rausgehen!
 
 
