@@ -26,7 +26,7 @@ Zumindest für diesen Rave
 Riecht nach Bier und Schweiß und Pisse  
 Und nach schlechtem Aftershave
 
-Qua-rant-ä-ne
+Qua-rant-ä-ne  
 raven ohne rausgehen!  
 raven ohne rausgehen!
 
@@ -40,7 +40,7 @@ müssen ohne Lärm auskommen
 Niemand muss mehr Psytrance hören,  
 alle hören, was sie wollen
 
-Qua-rant-ä-ne
+Qua-rant-ä-ne  
 raven ohne rausgehen!  
 raven ohne rausgehen!
 
@@ -54,7 +54,7 @@ alle aussehen wie sie wollen
 wem mein Avatar nicht passt
 kann sich ja vom Server trollen
 
-Qua-rant-ä-ne
+Qua-rant-ä-ne  
 raven ohne rausgehen!  
 raven ohne rausgehen!
 
