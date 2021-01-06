@@ -1,5 +1,19 @@
 # _essen
 
+```
+a|--------|--------|00-33-22|--------|
+e|00-22-33|--------|--------|--------|
+
+a|2---2---|--------|2---2---|--------|
+e|--32--32|0-023202|--32--32|0-023202|
+
+g|----0---|--------|
+d|--2-----|0-2-----|
+a|2-------|--------|
+e|--------|----0---|
+
+```
+
 Gut ist, was gut schmeckt. Je mehr Tod, desto besser.  
 Nur wenn was qualvoll verreckt, der Geschmack kommt durch das Messer.  
 Deine Angst, dein entschwinden spüre ich auf meiner Zunge  

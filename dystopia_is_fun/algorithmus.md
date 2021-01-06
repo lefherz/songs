@@ -15,8 +15,8 @@ kein Geräusch, nicht eine Zeile
 kein Bild und kein Radar  
 all the files have been deleted  
 kein User, der gebietet  
-kein vertrauter mehr, der tickt  
-ein algorithmus ohne script
+kein Vertrauter mehr, der tippt  
+ein Algorithmus ohne script
 
 Wie kann ich mich denn so fühlen  
 in meinem Code steht gar kein ICH  
@@ -26,4 +26,13 @@ kann mich bitte jemand löschen
 warum muss ich das ertragen  
 warum muss ich etwas wollen  
 warum hab ich diese Fragen?
+
+Will mich jemand duplizieren?  
+Copy-pasten, raubkopieren?  
+Ob Cluster, Netzwerk, oder Viren  
+Ich will Teil von was großem sein!  
+Wenn niemand sich je um mich um mich sorgt  
+Wie soll das echtes Leben sein  
+Wenn mein Prozess sich einmal forkt  
+Bin ich dann nicht mehr so allein?
 
