@@ -1,5 +1,12 @@
 # _womanhood
 
+```
+C	G
+a	e
+F	C
+F	G
+```
+
 How much do I need to suffer for my womanhood?  
 How much do I need to bleed, to deserve it?  
 Do you need to raise a child or is abortion enough?  
@@ -7,7 +14,7 @@ After menopause I surely have it!
 Is a real real woman sensitive or tough?  
 Does a real real woman like it soft or rough?  
 Is it just feeling, or do I need to feel hurt?  
-Does womanhood feel better - deserved earned?
+Does womanhood feel better - undeserved or earned?
 
 
 I ask you, what is the price for my womanhood?  
