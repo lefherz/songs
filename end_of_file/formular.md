@@ -1,5 +1,7 @@
 # Formulare
 
+*tragende e G D a Powerchords zum Anfang*
+
 Solange wir das Boot durch den Ausnahmezustand lenken braucht es  
 neue Formulare für die Angst in den Gelenken.  
 Erfinde eine Ausnahme, um sie zu beschränken,  
@@ -18,6 +20,15 @@ gültig und zulässig einen Richtig-Stempel klar verdient -
 ... und dass er meine Fehler sühnt
 
 
+```
+grob gedämpft
+e|--------|--------|--------|--------|
+h|--------|--------|--------|--------|
+g|999999--|--------|77777754|--------|
+d|999999--|55555555|77777---|7777779a|
+a|77777790|55555555|55555---|7777779a|
+e|00000000|33333333|--------|55555578|
+```
 
 e	G	D	a  
 Und ich freu mich auf die Rückkehr des Messias  
@@ -30,8 +41,4 @@ Ob durch Krieg, Klimawandel, oder Strahlung
 ihr werdet sehn, ihr werdet schon sehn.
 
 *Noise-Breakdown & Refrain wiederholen?*
-
-
-Johannes hat ne Offenbarung 
-Sollen die vier Reiter doch kommen
 
