@@ -30,6 +30,18 @@ a|77777790|55555555|55555---|7777779a|
 e|00000000|33333333|--------|55555578|
 ```
 
+```
+Solo:
+e|--87--87|--87--87|--87--87|--878a87|
+h|55--55--|88--88--|77--77--|66------|
+
+e|--87a878|--87a878|--78a878|--7857-5|
+h|55------|88------|77------|66----8-|
+
+e|--875-7-|--875-7-|--78a878|ca8757-5|
+h|55------|88------|77------|------8-|
+```
+
 e	G	D	a  
 Und ich freu mich auf die Rückkehr des Messias  
 denn ich bin diese Gesellschaft lange leid  
@@ -40,5 +52,11 @@ in der alle den Papierkram verstehen
 Ob durch Krieg, Klimawandel, oder Strahlung  
 ihr werdet sehn, ihr werdet schon sehn.
 
-*Noise-Breakdown & Refrain wiederholen?*
+*Noise-Breakdown & Refrain wiederholen. Breakdown Riff:*
+
+```
+                (2x)              (2x)                                (2x)
+a|8^----xx|8^----xx|a^a^-xxx|a^a^-xxx|--32--32|--32--32|--32--32|--323532|
+e|5^----xx|5^----xx|7^7^-xxx|7^7^-xxx|00--00--|33--33--|22--22--|11------|
+```
 
