@@ -8,7 +8,7 @@ Erfinde eine Ausnahme, um sie zu beschränken,
 Denn wir brauchen mehr Papierkram um die Sorgen zu ertränken.  
 Ein Formular zum dichten und ein Formular zum denken,  
 Ne faustdicke Ausgabe der Bibel zum verschenken,  
-Ein Formular um das Vokabular mal umzudenken.  
+Ein Formular um das Vokabular mal umzulenken.  
 weil wir lieber Formulare statt ner weißen Fahne schwenken.  
 Drum noch eine Maßnahme gegen den Kontrollverlust  
 Ausnahmsweise beten wir zum Sachbearbeiter Verdruss  
