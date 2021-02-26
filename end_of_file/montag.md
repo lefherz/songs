@@ -26,8 +26,8 @@ doch ich bin ein Mensch und Technik ist ein Teil von mir
 
 Wer sind hier die Sklaven? Die Maschinen oder wir?  
 Wir befehlen und sie überwachen uns dafür!  
-Solange wir Menschen noch von Gott geschaffen werden  
-Werden auch Microsoft und Apple noch nicht sterben
+Solange die Menschen sich nicht gegen Gott erheben  
+Werden auch Microsoft und Apple überleben
 
 Wenn die Menschen Arbeit brauchen oder was zu tun  
 finden sie bestimmt nen Grund, sich doch nicht auszuruhn  
