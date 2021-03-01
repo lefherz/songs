@@ -14,25 +14,25 @@ nicht aufstehn macht dich müde, sondern arbeiten gehen!
 Lass die Arbeit den Maschinen, und dann wird schon aufgeräumt  
 leg dich lieber in die Dünen, werd gebräunt und rauch nen Joint!
 
-Du bist nicht deine Stelle, und du bist nicht dein Gehalt.  
-Dein Boss ist keine Göttin und nicht höhere Gewalt!  
-du musst dir nicht erzählen dass die Arbeit dir gefällt  
-ich kenn da nen Roboter, der will dafür nicht mal Geld.
-
 Wäre ich ne Katze, wär mir alles scheißegal  
 ich würde morgens liegen bleiben, ihr könnt mich alle mal!  
 Ich hätte kein Handy, denn ich wär ja nur ein Tier  
 doch ich bin ein Mensch und Technik ist ein Teil von mir
 
-Wer sind hier die Sklaven? Die Maschinen oder wir?  
-Wir befehlen und sie überwachen uns dafür!  
-Solange wir Menschen noch von Gott geschaffen werden  
-Werden auch Microsoft und Apple noch nicht sterben
+Du bist nicht deine Stelle, und du bist nicht dein Gehalt.  
+Dein Boss ist keine Göttin und nicht höhere Gewalt!  
+du musst dir nicht erzählen dass die Arbeit dir gefällt  
+ich kenn da nen Roboter, der will dafür nicht mal Geld.
 
 Wenn die Menschen Arbeit brauchen oder was zu tun  
 finden sie bestimmt nen Grund, sich doch nicht auszuruhn  
 Für manche heißts die Welt mit Regelwerken zuzumüllen  
 Die andren sind beschäftigt, Formulare auszufüllen
+
+Wer sind hier die Sklaven? Die Maschinen oder wir?  
+Wir befehlen und sie überwachen uns dafür!  
+Solange wir Menschen noch von Gott geschaffen werden  
+Werden auch Microsoft und Apple noch nicht sterben
 
 Als Sir Alan Turing den Computer neu erfand  
 wurde er noch gegen die Faschisten angewandt  
