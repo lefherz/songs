@@ -16,18 +16,11 @@ Lagerfeuer...
 
 0. \_offenbarung
 1. \_formulare
-2. \_montag
-
-Dann \_micha, \_täter, \_nischen, halt die düsteren Songs
-
-6. \_weltuntergang
-7. \_zerstörungslied
-8. \_womanhood
-
-Und dann noch 2-3 solarpunk-Tracks? 
-Einen Track, der Solarpunk definiert.
-Einen über Utopie, die Versöhnung mit der Gemeinschaft (\_puzzle?)
-
-Und dann einen zum ausklingen. Man könnte auch \_weltuntergang oder das
-\_zerstörungslied erst am Ende bringen.
+2. \_täter
+3. \_womanhood
+4. \_nischen
+5. \_montag
+6. \_solar
+7. \_puzzle
+8. \_weltuntergang
 
