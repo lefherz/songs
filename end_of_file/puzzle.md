@@ -1,6 +1,8 @@
 # _puzzle
 
 Reggae strokes: b A G G  
+Shantyyy: https://www.youtube.com/watch?v=05rR7nozsYg
+Nice bassline & voices: https://www.youtube.com/watch?v=UgsurPg9Ckw
 
 On a little houseboat near the coast of dying britain,  
 Alan hopes he finds a quiet home  

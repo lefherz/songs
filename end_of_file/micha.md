@@ -15,3 +15,8 @@ sie sagt dass es Essen hier nur drei mal am Tag gibt
 und dass er froh sein kann, dass er noch nicht im Grab liegt
 bessere Versorgung könnte kein Mensch sich hier kaufen
              ... "Warum kann ich nicht mehr laufen!??"
+
+
+Als er aufwacht, stellt er fest, dass niemand mehr Auto fährt
+All die negativen Dinge, die mit Autos verknüpft sind, fallen weg - aber Micha fühlt sich ohne das verloren
+

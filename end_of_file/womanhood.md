@@ -27,7 +27,7 @@ Other women pay so much for their shells
 Tough competition - femininity sells  
 
 
-What do I need to steal to gain my womanhood?  
+What do I need to steal to earn my womanhood?  
 I don't want to pay the price, even if I could!  
 Just a frigging quest item, is there some way I can cheat?  
 Do you wanna be my personal robyn hood?  

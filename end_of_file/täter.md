@@ -3,11 +3,11 @@
 **Disclaimer:** Dieser Song hat nichts mit anderen Menschen zu tun. Jeder
 Mensch wird unterschiedlich sozialisiert, und nur weil ich eine bestimmte Sorte
 toxische Männlichkeit abbekommen habe, haben das nicht alle, die mit ihren
-männlichen Anteilen hadern.
+männlichen Anteilen hadern. <- nochmal mit weniger Fremdwörtern?
 
 ```
-a|--7-|----|--8-|10-8-|
-e|55-5|8-76|-6-6|- --6|
+a|--7-|----|--8-|a-8-|
+e|55-5|8-76|-6-6|---6|
 ```
 
 	a	C	B  
