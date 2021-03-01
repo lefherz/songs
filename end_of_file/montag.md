@@ -31,8 +31,8 @@ Die andren sind beschäftigt, Formulare auszufüllen
 
 Wer sind hier die Sklaven? Die Maschinen oder wir?  
 Wir befehlen und sie überwachen uns dafür!  
-Solange wir Menschen noch von Gott geschaffen werden  
-Werden auch Microsoft und Apple noch nicht sterben
+Solange die Menschen sich nicht gegen Gott erheben  
+Werden auch Microsoft und Apple überleben
 
 Als Sir Alan Turing den Computer neu erfand  
 wurde er noch gegen die Faschisten angewandt  
