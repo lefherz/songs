@@ -5,6 +5,9 @@ C	G
 a	e
 F	C
 F	G
+
+g|--------|c-------|a-c-a-9-|--------|
+d|a-c-c^ca|--------|--------|--------|
 ```
 
 How much do I need to suffer for my womanhood?  
