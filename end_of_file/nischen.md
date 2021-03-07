@@ -1,4 +1,4 @@
-# Nische
+# _nischen
 
 ```
 d|--------|--------|--------|----b---|
@@ -10,10 +10,10 @@ Der Zaun besteht aus Nischen - Es sind der Leute tausend,
 und obwohl er mehr aus Löchern als aus Draht besteht  
 er hält die Meute draußen,  
 und während sie da nutzlos vor dem Zaun rumsteht  
-da klettern, die Ratten, verwegen durch die Maschen  
+da klettern, die Raschen, verwegen durch die Maschen  
 es schaffen nur die kleinsten, und die denen was fehlt  
 nur wer sich traut zu klettern, nur wer sich etwas quält  
-der schafft es durch die Nischen in die bessere Welt
+der schafft es durch die Nischen in die andere Welt
 
 
 Der Berg ist alt und stolz, er ist hoch, er ist hierarchisch  
