@@ -24,7 +24,7 @@ Dein Boss ist keine Göttin und nicht höhere Gewalt!
 du musst dir nicht erzählen dass die Arbeit dir gefällt  
 ich kenn da nen Roboter, der will dafür nicht mal Geld.
 
-Wenn die Menschen Arbeit brauchen oder was zu tun  
+Wenn die Menschen Freizeit haben oder nix zu tun  
 finden sie bestimmt nen Grund, sich doch nicht auszuruhn  
 Für manche heißts die Welt mit Regelwerken zuzumüllen  
 Die andren sind beschäftigt, Formulare auszufüllen
