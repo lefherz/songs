@@ -35,18 +35,19 @@ Jede Autorität hat ein Abonnement auf ihren Verfall
 -->
 
 [utopie]
-Unkraut bricht durch Asphalt hindurch  
+Unkraut bricht durch den Asphalt hindurch  
 Sonnenlicht dringt in die letzten Ritzen  
 Den unvermeidbaren Zusammenbruch  
 genießen wir mit Popcorn auf den besten Plätzen  
-Ich stake mit dem Floß durch die Straßen Hong Kongs  
-Brücken zwischen Wolkenkratzern, in den Schluchten  
-Ich gleite über Autos, die die Flucht versuchten  
-Wir leben von den Abfällen der Gutbetuchten  
 Efeu klettert durch die Gitterstäbe  
 Auf den Leichenbergen wachsen Pilze  
 Richtfunkstrecken bilden ein Gewebe  
 Ein Piratensender spielt Gesülze  
+
+Ich stake mit dem Floß durch die Straßen Hong Kongs  
+Brücken zwischen Wolkenkratzern, in den Schluchten  
+Ich gleite über Autos, die die Flucht versuchten  
+Wir leben von den Abfällen der Gutbetuchten  
 Wir sind nicht auf Google Maps verzeichnet  
 Und die Lieferdrohnen meiden uns  
 Wir sind nicht für den Profit geeignet  
