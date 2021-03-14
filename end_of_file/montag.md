@@ -6,7 +6,7 @@ repeat 1-3 verses several times, 3rd comes in the end.
 ```
 a     E/a   a     E
 d     d/a   a     E/a
-a     a     a     F/ E
+C     d     a     F/ E
 ```
 
 Du hasst nicht den Montag, du hasst das System  
