@@ -43,13 +43,13 @@ Vertrauen kann man Menschen nicht
 das verrät mir dein Gesicht  
 eure Logik ist verbogen, kein Hund hat jemals gelogen
 
-Du wirfst mir vor ich wär verrückt  
-wie jeder, der nur Tiere liebt  
-ich bin nicht anders nur speziell, ich steh nunmal auf schwarzes Fell
-
 Was maßen sich die Herrchen an  
 Was habt ihr ihnen angetan  
 Mit Maulkorb und mit Hundeleine, quäl ich nicht mal meine Feinde
+
+Du wirfst mir vor ich wär verrückt  
+wie jeder, der nur Tiere liebt  
+ich bin nicht anders nur speziell, ich steh nunmal auf schwarzes Fell
 
 Was ich will ist offenbar  
 Ich hoffe auf ein klares Ja  
