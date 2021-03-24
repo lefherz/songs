@@ -47,6 +47,14 @@ Du wirfst mir vor ich wär verrückt
 wie jeder, der nur Tiere liebt
 ich bin nicht anders nur speziell, ich steh nunmal auf schwarzes Fell
 
+Was maßen sich die Herrchen an
+Was habt ihr ihnen angetan
+Mit Maulkorb und mit Hundeleine, quäl ich nicht mal meine Feinde
+
+Was ich will ist offenbar
+Ich hoffe auf ein klares Ja
+Neulich hab ich ihn gefragt, doch er hat leider nichts gesagt
+
 Liebe ist für alle da,
 hab ich immer geträumt
 doch niemals war mir je ein Mensch
