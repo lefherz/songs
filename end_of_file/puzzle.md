@@ -1,6 +1,11 @@
 # _puzzle
 
-Reggae strokes: b A G G  
+Reggae strokes:  
+b A G G  
+b A G G  
+e D A G  
+b A G F#
+
 Shantyyy: https://www.youtube.com/watch?v=05rR7nozsYg
 Nice bassline & voices: https://www.youtube.com/watch?v=UgsurPg9Ckw
 
