@@ -3,7 +3,7 @@
 Reggae strokes:  
 b A G G  
 b A G G  
-e D A G  
+e D F# G
 b A G F#
 
 Shantyyy: https://www.youtube.com/watch?v=05rR7nozsYg
