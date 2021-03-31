@@ -1,5 +1,11 @@
 # Weltuntergang
 
+```             (2x)
+g|-7-7-787|-7-7-787|--------|--------|
+d|-5-5-555|-5-5-555|7-7--7-7|8-8--8-8|
+a|--------|--------|5-5--5-5|6-6--6-6|
+```
+
 TW: Tod, Inzest
 Es ist ein Herbstgedicht, aber es geht um den Herbst einer Spezies.
 Bei dem dann alle Blätter welken und abfallen und nur noch die ausgebrannten
@@ -48,4 +54,4 @@ hatte er jeden Tag wie seinen letzten gelebt.
 Als letzten Endes dann die Welt unterging
 beschloss ich, mein eigener Gott zu sein
 und in Gleichgültigkeit vor Leben und sterben
-war ich schließlich als einziger frei.
+war ich schließlich als einziges frei.
