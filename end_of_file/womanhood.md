@@ -26,7 +26,7 @@ Is there a pink tax on my existence?
 How much mascara and lipstick buy a conscience?  
 If I sell my body hair to the highest bidder?  
 Can you afford this surgery or are you a quitter?  
-Other women pay so much for their shells
+Other women pay so much for their shells  
 Tough competition - femininity sells  
 
 
