@@ -46,7 +46,7 @@ Ich frage mich - warum hab ich das nicht früher gewagt
 
 Außerhalb des Hamsterrads ist nur eine Wüste  
 Die mich dran erinnert, wer ich eigentlich sein müsste  
-Wieviel kostet meine Freiheit, gibt es sie in Tüten  
+Wieviel kostet meine Zeit, gibt es sie in Tüten  
 müsstet ihr mir dafür nicht eigentlich was bieten  
 Ich hoff nur, dass ich draußen nicht verdurste  
 auch wenn ich natürlich vorher wusste  
@@ -59,7 +59,7 @@ denn essen, essen muss auch ich
 und wenn schon kein Vertrag mich hält  
 dann die Angst vorm Leben ohne Geld
 
-Ich bin krank, meine Krankheit ist die Zivilisation  
+Ich kranke an der Zivilisation  
 und jeder eurer Scheine ist mir Inspiration  
 eure Lügen kleben an mir, ich leb euren Takt und Ton  
 ich muss arbeiten und kaufen, und der Tod ist der Lohn
