@@ -9,13 +9,13 @@ Da stehen sie im Sonnenscheine
 Licht auf die behaarten Beine  
 Die Brust gewölbt, der Haare Glanz blendet meine Augen ganz
 
-ich sitz auf einem Baum herum  
-und mache mir den Rücken krumm  
+ich sitze hier im Publikum  
+nervös blicke ich um mich rum  
 die Hunde rennen wie verzückt, und mein Herz das klopft wie verrückt
 
 Ich hab was mir gefällt, gemerkt  
 ein Hundeschönheitswettbewerb  
-ich hoffe dass das Blattgedeck die Beule in der Jeans versteckt
+ich hoffe dass das Tischgedeck die Beule in der Jeans versteckt
 
 Sie reden nicht nur dumm herum  
 wie Menschen das gewöhnlich tun  
