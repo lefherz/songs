@@ -1,7 +1,12 @@
 # Ich gehöre nicht dazu
 
+```
+|v-x^~^v^|v-x^~^v^|v-x^~^v^|v~v^v~v^|
+|v-x^~^v^|v-x^~^v^|v-x^~^v^|v~v^v-v-|
+
 h F#  
 G e/A
+```
 
 Ich hab mal auf nem Baum gepennt, doch ich bin kein Besetzi.  
 ich geh nie containern und hab Angst vor den Gesetzen  
