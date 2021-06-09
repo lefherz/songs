@@ -1,5 +1,8 @@
 # Ich gehöre nicht dazu
 
+h F#  
+G e/A
+
 Ich hab mal auf nem Baum gepennt, doch ich bin kein Besetzi.  
 ich geh nie containern und hab Angst vor den Gesetzen  
 Eigentlich bin ich ja nicht mal gern in der Natur  
@@ -43,6 +46,6 @@ ich liebe meine Haare, doch gehöre nicht dazu.
 Niemand ist wie ich und ich glaub niemand will so sein  
 doch deswegen sind wir hier noch lange nicht allein  
 zwischen all den Stühlen ist es durchaus ganz bequem  
-und wer mit hier sitzen will, gehört dann wohl hierhin
+und wer mit mir hier sitzen will, gehört dann wohl hierhin
 
-und wer mit hier sitzen will, gehört dann wohl hierhin
+und wer mit mir hier sitzen will, gehört dann wohl hierhin
