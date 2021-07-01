@@ -19,6 +19,13 @@ Wir zeigen den Überwachern, wie man diesen Kampf gewinnt
 Wenn wir nur zusammenhalten, stellen wir dem Zug die Weichen -  
 Und jetzt alle miteinander - Leistungen erschleichen!
 
+```
+b|--------|--------|7-------|--------|--------|--------|
+g|7-------|------7-|--a-9---|7-------|a-9-7---|6-7-6-7-|
+d|--7----7|a-9-7---|--------|--7----7|--------|--------|
+a|----9---|--------|--------|----9---|--------|--------|
+```
+
 In einem Staat, in dem Schwarzfahrer in den Knast gehen  
 kostest du im Knast mehr, als ein Busfahrer verdient  
 Schon als ich als Kind damals schwarz in die Schule fuhr  
