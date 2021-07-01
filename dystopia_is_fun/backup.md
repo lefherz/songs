@@ -5,9 +5,12 @@ hab gedacht, hab gedacht, alles um mich rum ist für immer nacht
 ewig sein, ewig sein, ewig ewig in der Dunkelheit  
 Heiserkeit, Heiterkeit bis mich jemand von der Ewigkeit befreit
 
-Backup – Backup – bis in die Unendlichkeit  
-Backup – Backup – ich bin in der Ewigkeit 
+e                               D  
+Backup – Backup – tief bis in die Ewigkeit  
+C                               H  
+Backup – Backup – bis in die Unendlichkeit
 
+e               F               e|------a8|  
 eines Tags, eines Tags, eines Tags hatte ich vorm sterben Angst  
 ich fiel gerade von einem hohen Dach, weil du nur so fliegen kannst  
 wieso können wir nicht ewig leben, wie es eine Göttin kann  
