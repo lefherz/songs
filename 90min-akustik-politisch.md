@@ -1,6 +1,6 @@
-Montag
+Bullen, Kapitalismus, Sexismus, Gewalt, fragwürdige Beziehungsdynamiken und patriarchale Gewalt, HIV, Suizid
 
-Warum
+Montag
 
 Studenten
 
@@ -16,21 +16,13 @@ Polizisten verbreiten Hass
 
 Hitler gewählt
 
-Weltuntergang
-
 Vogellied
 
-Täter
-
 Scared
-
-Clyde²
 
 Asphalt
 
 Krätze
-
-Märchenprinz
 
 Liebe mich
 
@@ -43,8 +35,6 @@ Spannung
 Der Blick
 
 Vernichtungsphantasie
-
-Nische
 
 Ampeln
 
