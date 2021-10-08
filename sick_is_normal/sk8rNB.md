@@ -5,6 +5,8 @@ Lizenz: CC BY 4.0
 Tabs: sk8er boi von Avril Lavigne
 Video: das Video in Minecraft nachstellen? Mit Karaoke-Zeilen drunter!
 
+Chords: d A C Bb
+
 It was nonbinary  
 **they were nonbinary**  
 Can I make it anymore obvious?  
@@ -17,6 +19,8 @@ Secretly they wanted it as well.
 The attention was nice  
 the opportunities burned  
 **Love is a gift never returned**
+
+Chords: F C Bb A
 
 It was a synthie boi  
 They said, "play your rhythms, boi",  
@@ -44,6 +48,8 @@ It was too avantgarde for M
 They had guitar teachers,  
 while it had the sound features  
 but you need more skills for a baaaaand
+
+Chords: D F C Bb/A
 
 Everyone says what I should do  
 my voice is playback autotune  
