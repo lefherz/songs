@@ -12,13 +12,14 @@ Der Schmerz in deinem Blick ist so klar
 wie all die Ichs, die ich schon war  
 
 
-Ich hab kein Plan, warum du mir vertraust.  
-Hast du denn nicht in meinen Spiegel geschaut?  
-meine Weste nicht weiß, sondern grau  
+Ich hab  
+kein Plan, warum du mir vertraust. Hast du denn  
+nicht in meinen Spiegel geschaut?  
+ich winke mit Red Flags herum - ich würd hier  
+sicher nicht landen, es gibt hier keinen Grund  
 Wärst du einmal nur in meiner Haut  
-Und ich wedel mit Red Flags herum  
-hier bloß nicht landen, es gibt keinen Grund  
-Dein Vertrauen ist auf Sand gebaut  
+das ist weder so toll noch gesund  
+Vertrauen ist auf Sand gebaut  
 Hast du nicht in meinen Spiegel geschaut?
 
 
