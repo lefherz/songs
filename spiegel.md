@@ -2,21 +2,21 @@
 
 (Melodie/Akkorde von Happier than ever?)
 
-Powerchords: A G F C A G F E
+Powerchords: E D C F/D E D C H
 
 schütt dein Herz aus, hier in meinen Krug  
 Und ich leere ihn in einem Zug  
 Jeder Schluck macht mich mehr so wie du  
 Jeder Biss etwas weniger wie mich  
-weißt du dass ein Hai Blut noch weiter riecht  
-und du mich auf Meilen anziehst  
+weißt du wie gut ein Hai Blut riecht  
+und dass du mich auf Meilen anziehst  
 Der Schmerz in dir ist so klar  
-wie all die Ichs, die ich schon war  
+wie all die Ichs, die ich schon war
 
 ```
-d|------|------|------|------|------|2--2--|------|------|
-a|3--3--|------|0--0--|------|3--3--|------|------|5-----|
-e|------|0--0--|-----0|1--1--|------|------|1--1--|---4--|5
+d|------|------|------|------|------|a--a--|------|------|
+a|b--b--|------|8--8--|------|b--b--|------|------|d-----|
+e|------|8--8--|-----8|9--9--|------|------|9--9--|---c--|d
 ```
 
 Ich hab  
@@ -47,7 +47,7 @@ Geschichte voll Verben geheimer Begriffe
 gedichtet bekomme, und esse die Scherben, ich schlage die  
 Scheibe entzwei, und sie knirscht beim kauen,  
 ich weiß nicht, werd ich mir je vertrauen?  
-Und küsst du mich, wie ich mich sehne, willst du an mein  
-Blut oder nur - oder nur an die Tränen?
+Und küsst du mich, wie ich mich sehne, gibst du mir dein  
+Blut oder nur - oder nur deine Tränen?
 
 
