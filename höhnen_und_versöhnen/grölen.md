@@ -1,12 +1,15 @@
 # Proleten verehren Hochprozentiges
 
-A						D  
+```
+A	D
+D	A
+f#	f#/f/E
+A	E/A
+```
+
 Es gibt da eine Sache die ein weiser Mensch erfand  
-					    A  
 es ist die Kunst zu singen, ohne dass mans kann  
-f#			f#		f#/f/E  
 und so sind wir hier versammelt, Dosenbier in jeder Hand  
-A			E		A  
 singen voller Freude, euphorisch jeder Punk
 
 Grölen für die Traurigkeit, Grölen für die Freude  
