@@ -18,3 +18,4 @@ Ideen:
 - Inwiefern ist es bold, "Cyberpunk" als Bezeichung für sich zu nehmen, statt nur für ein Genre, wie es ursprünglich mal war...
 - Pop-Künstler:innen müssen Erwartungsmanagement betreiben wegen der geballten Gewalt der öffentlichen Meinung - gibt es das auch im Punk?
 - cis-moll: ein Song über das Gefühl, nicht trans genug zu sein und sich das alles nur einzureden?
+- hilfe, sind wir jetzt eins von diesen spießigen Schwulen-Pärchen?
