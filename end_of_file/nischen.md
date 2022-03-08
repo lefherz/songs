@@ -9,7 +9,7 @@ e|cc-c-c-c|bb-b-b-b|aa-a-a-a|99-9--9-|
 Der Zaun besteht aus Nischen - Es sind der Leute tausend,  
 und obwohl er mehr aus Löchern als aus Draht besteht  
 er hält die Meute draußen,  
-und während sie da nutzlos vor dem Zaun rumsteht  
+und während sie da schutzlos vor dem Zaun rumsteht  
 da klettern, die Raschen, verwegen durch die Maschen  
 es schaffen nur die kleinsten, und die denen was fehlt  
 nur wer sich traut zu klettern, nur wer sich etwas quält  

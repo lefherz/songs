@@ -19,7 +19,7 @@ Doch ich musste leider lernen, auch wer wagt, gewinnt nicht, auch
 wenn du dich nicht verbiegst - der Staat tut es bestimmt nicht  
 Serverfarmen, Wolkenkratzer, für die Ewigkeit gebaut  
 während wir hier Zittern ob das Amt die nächste Miete blecht  
-In der Dystopie werden Einzelkämpfer produziert
+In der Dystopie werden Einzelkämpfer produziert  
 denn wer will schon solidarisch sein, wenn man dafür kassiert  
 In den Filmen sterben die Verbündeten zuerst  
 um zu zeigen was passiert, wenn man gemeinsam revoltiert  
