@@ -19,3 +19,4 @@ Ideen:
 - Pop-Künstler:innen müssen Erwartungsmanagement betreiben wegen der geballten Gewalt der öffentlichen Meinung - gibt es das auch im Punk?
 - cis-moll: ein Song über das Gefühl, nicht trans genug zu sein und sich das alles nur einzureden?
 - hilfe, sind wir jetzt eins von diesen spießigen Schwulen-Pärchen?
+- Scheiß GEMA, nur damit das mal auf dem Gema-Zettel steht
