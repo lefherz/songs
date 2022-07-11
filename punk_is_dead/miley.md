@@ -37,9 +37,13 @@ I would just give up and let it go
 I would just give up and let it go
 
 ```
-d|77777777|aaaa--55|
-a|77777777|aaaa--55|
-e|55555555|8888--33|
+d|9-9-9-9-|9-9-9-9-|a-a-a-a-|a-a-a-a-|
+a|9-9-9-9-|9-9-9-9-|a-a-a-a-|a-a-a-a-|
+e|7-7-7-7-|7-7-7-7-|8-8-8-8-|8-8-8-8-|
+
+d|7-7-7-7-|7-7-7-7-|8-8-8-8-|8-8-8-8-|
+a|7-7-7-7-|7-7-7-7-|8-8-8-8-|8-8-8-8-|
+e|5-5-5-5-|5-5-5-5-|6-6-6-6-|6-6-6-6-|
 ```
 
 If someone like Miley showed up in your punkrock bar  
