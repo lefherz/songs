@@ -42,7 +42,7 @@ a|77777777|aaaa--55|
 e|55555555|8888--33|
 ```
 
-If someone like Miley shows up in your punkrock bar  
+If someone like Miley showed up in your punkrock bar  
 would the macho bouncer even let them get this far  
 wouldn't they be judged for what they look like, who they are  
 punk is about more than what you do with your guitar
