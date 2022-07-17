@@ -5,8 +5,8 @@ wird gefüttert und geschoren, fühlt sich einsam, klein und dumm
 Und sie sind zwar für mich da, doch können mein Schreien nicht verstehn  
 Ich will endlich größer werden, einfach aufstehen und gehn  
 Mutter, Vater, Opa, Tante, Nibling, Cousi, Bäcker, Tanke  
-Wolln dass ich hier her gehöre, doch ich kotz beim Gedanken  
-Du findest schon eine Freundin, einen Job, ein Zeckenbier  
+Wolln dass ich hier her gehöre, doch ich kotze beim Gedanken  
+Du findest schon eine Freundin, einen Job, nen Kasten Bier  
 doch ich will nur weg von hier, weg von euch, weg von mir!
 
 
@@ -26,7 +26,15 @@ doch ich will nur weg von hier, weg von euch, weg von mir!
 Chorus?
 
 
-Doch in dem besetzten Haus, in dem aus
+Doch in dem besetzten Haus, in das ich geflohen bin  
+sitzen sie im Kreis herum und diskutieren über Sinn  
+unsren Platz in der Bewegung, wie starten wir die Revolte  
+wer tut was fürs Kollektiv, wer was tun und lassen sollte  
+Im Revolutionstheater bin ich doch nur eine Puppe  
+Und das Stück geschrieben haben die Erwartungen der Gruppe  
+Vielleicht pass ich irgendwann, dann in euer Puzzle rein  
+Heute will ich nur noch ein - Zimmer ganz für mich allein!
+
 
 
 Hier setzt sich das Kollektiv fort, das mich vorher eingesperrt hat
