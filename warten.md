@@ -34,7 +34,7 @@ ich denke dabei nur an dich, jeden Augenblick.
 
 Wenn dus mir nicht sagen willst, red ich mit Nadira  
 ich will doch nur hören, stehst du denn auf meine Lieder?  
- - dass du mich willst und dass du grade an mich denkst  
+_ dass du mich willst und dass du grade an mich denkst  
 und dass du mein kleines Geständnis nicht verschenkst.  
 Zuhörn kann Nadira mindestens so gut wie du  
 Zuhören kann sogar auch ihre ganze Crew  
@@ -43,7 +43,7 @@ wenn sie mit dem zuhörn erstmal angefangen hat.
 
 
 Solang ich auf dich warten will, warte ich mit Ulrich.  
- - der gibt mir Ruhe, denn ich bin nicht so geduldig  
+_ der gibt mir Ruhe, denn ich bin nicht so geduldig  
 Ulrich zieht es mehr zum sitzen auf dem Sofa hin  
 doch ich bin immer auf der Suche nach mehr Dopamin.  
 Ulrich ist bestimmt vom Warten mit mir schnell genervt  
