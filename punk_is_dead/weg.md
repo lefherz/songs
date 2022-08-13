@@ -10,9 +10,6 @@ Du findest schon eine Freundin, einen Job, nen Kasten Bier
 doch ich will nur weg von hier, weg von euch, weg von mir!
 
 
-Chorus?
-
-
 Zwischen all den Klassensprechern, Streber:innen, Mackerscheiße
 Pausenhof und Lieblingsfächern, Nachsitzen und Schulverweise
 Da sitzt eine große Spinne, in deren Netz sich alle fügen
@@ -23,7 +20,13 @@ Fäden weben meine Zukunft, willst du nicht so sein wie wir?
 doch ich will nur weg von hier, weg von euch, weg von mir!
 
 
-Chorus?
+Werd ich meinen Weg je finden?  
+...so weit wie du rennen kannst  
+Werd ich euch je vertrauen können?  
+...eine Zelle aus Nähe und Distanz  
+Kann ich mich je fallen lassen?  
+...wenn ich niemals aufprall, bleib ich ganz  
+Werd ich mich für immer hassen?  
 
 
 Doch in dem besetzten Haus, in das ich geflohen bin  
@@ -36,19 +39,11 @@ Vielleicht pass ich irgendwann, dann in euer Puzzle rein
 Heute will ich nur noch ein - Zimmer ganz für mich allein!
 
 
-
-Hier setzt sich das Kollektiv fort, das mich vorher eingesperrt hat  
-Ich kann mich nirgends völlig einfügen  
-Wenn ich nicht mehr aktiv bin, werde ich nicht mehr eingeladen
-
-
 Werd ich meinen Weg je finden?  
-zwischen Nähe und Distanz  
-Werd ich euch vertrauen können?  
+...mit dir fühl ich mich nicht eingesperrt  
+Werd ich je vertrauen können?  
+...niemand hat mir je so zugehört  
+Wie find ich den Weg zu dir?  
+...alle meine Zweifel, wohlgenährt  
+Willst du mit mir weg von hier?
 
-
-
-Outro?  
-Bei dir fühl ich mich zum ersten Mal nicht eingesperrt  
-Hier kann ich sein wer ich bin  
-Wollen wir gemeinsam weg von hier?
