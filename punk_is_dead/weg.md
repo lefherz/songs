@@ -37,17 +37,18 @@ Heute will ich nur noch ein - Zimmer ganz für mich allein!
 
 
 
-Hier setzt sich das Kollektiv fort, das mich vorher eingesperrt hat
-Ich kann mich nirgends völlig einfügen
+Hier setzt sich das Kollektiv fort, das mich vorher eingesperrt hat  
+Ich kann mich nirgends völlig einfügen  
 Wenn ich nicht mehr aktiv bin, werde ich nicht mehr eingeladen
 
 
-Ich muss meinen Weg noch finden
-Nähe & Distanz
-Werd ich euch je vertrauen können?
+Werd ich meinen Weg je finden?  
+zwischen Nähe und Distanz  
+Werd ich euch vertrauen können?  
 
 
-Outro?
-Bei dir fühl ich mich zum ersten Mal nicht eingesperrt
-Hier kann ich sein wer ich bin
+
+Outro?  
+Bei dir fühl ich mich zum ersten Mal nicht eingesperrt  
+Hier kann ich sein wer ich bin  
 Wollen wir gemeinsam weg von hier?
