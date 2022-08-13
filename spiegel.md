@@ -20,9 +20,9 @@ e|------|8--8--|-----8|9--9--|------|------|9--9--|---c--|d
 ```
 
 Ich hab  
-kein Plan, warum du mir vertraust. Hast du denn  
+kein Plan, warum du mir vertraust. Hast du  
 nicht in meinen Spiegel geschaut?  
-ich winke mit Red Flags herum - ich würd hier  
+ich winke mit Red Flags herum - hier würd ich  
 sicher nicht landen, es gibt hier keinen Grund  
 Wärst du einmal nur in meiner Haut  
 das ist weder so toll noch gesund  
