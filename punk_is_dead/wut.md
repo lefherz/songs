@@ -40,7 +40,7 @@ anständigen Brand entfachen?
 es gibt hier kaum hundert Leute  
 die unsere Kunst kapiern  
 doch ich bleibe lieber hier  
-Frieden kriegt ihr nicht von mir!
+Frieden macht ihr nicht mit mir!
 
 "Da ist sie! Da lag sie ganze Zeit! Sie war in der Sofaritze! Oh man. Ich hab schon gewusst, warum ich da nicht geguckt habe."
 
