@@ -13,7 +13,7 @@ werd ich nicht doof angeguckt
 wenn ich nicht "Besetzung" google  
 werd ich nicht nochmal gehookt  
 Ich leb ja ganz gut im Dreck  
-Hab nen schönen kleinen Fleck  
+Hab nen schönen bunten Fleck  
 Wovor, frag ich mich noch immer,  
 lauf ich eigentlich weg?
 
