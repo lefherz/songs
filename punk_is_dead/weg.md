@@ -20,6 +20,13 @@ Fäden weben meine Zukunft, willst du nicht so sein wie wir?
 doch ich will nur weg von hier, weg von euch, weg von mir!
 
 
+```
+g|8--8--8-|6--8--6-|--------|--------|
+d|88888888|88888888|9--9--9-|8--9--8-|
+a|--------|--------|99999999|88888888|
+e|--------|--------|--------|--------|
+```
+
 Werd ich meinen Weg je finden?  
 ...so weit wie du rennen kannst  
 Werd ich euch je vertrauen können?  
