@@ -1,9 +1,9 @@
 # _miley
 
 ```
-d|--------|------55|
-a|5-7-5---|------55|
-e|------5-|------33|
+g|--------|------55|
+d|5-7-5---|------55|
+a|------5-|5785--33|
 ```
 
 Miley Cyrus is more punk than me  
@@ -13,9 +13,9 @@ Miley Cyrus is more punk than me
 Miley Cyrus is more punk than me
 
 ```
+g|77777777|aaaa--55|
 d|77777777|aaaa--55|
-a|77777777|aaaa--55|
-e|55555555|8888--33|
+a|55555555|8888--33|
 ```
 
 If I was a teenie popstar and not bored in school  
@@ -37,13 +37,9 @@ I would just give up and let it go
 I would just give up and let it go
 
 ```
-d|9-9-9-9-|9-9-9-9-|a-a-a-a-|a-a-a-a-|
-a|9-9-9-9-|9-9-9-9-|a-a-a-a-|a-a-a-a-|
-e|7-7-7-7-|7-7-7-7-|8-8-8-8-|8-8-8-8-|
-
-d|7-7-7-7-|7-7-7-7-|8-8-8-8-|8-8-8-8-|
-a|7-7-7-7-|7-7-7-7-|8-8-8-8-|8-8-8-8-|
-e|5-5-5-5-|5-5-5-5-|6-6-6-6-|6-6-6-6-|
+g|9-9-9-9-|a-a-a-a-|7-7-7-7-|8-8-8-8-|
+d|9-9-9-9-|a-a-a-a-|7-7-7-7-|8-8-8-8-|
+a|7-7-7-7-|8-8-8-8-|5-5-5-5-|6-6-6-6-|
 ```
 
 If someone like Miley showed up in your punkrock bar  
@@ -54,9 +50,6 @@ punk is about more than what you do with your guitar
 Miley Cyrus is more punk than me  
 member of the fucking bourgeouisie  
 I am still a boring worker bee  
-Miley Cyrus is more punk than me  
-Miley Cyrus is more punk than me
-
 Miley Cyrus is more punk than me  
 I don't care about your purity  
 We don't need no punkrock school degree  
