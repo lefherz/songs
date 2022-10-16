@@ -2,6 +2,12 @@
 
 Chords: e h C G/f#
 
+```
+d|-9-a-9--|-9-a-9--|--------|--------|
+a|7-7-7---|--------|-a-9-a--|-a-9-7--|
+e|--------|7-7-7---|8-8-8---|7-7-7---|
+```
+
 Glaubst du noch an Gott? An die Absolution?  
 Zweifelst du? bist du das Glauben schon gewohnt?  
 Willst du in den Himmel, oder lieber Gott nah sein?  
