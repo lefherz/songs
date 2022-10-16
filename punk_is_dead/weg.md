@@ -46,6 +46,8 @@ Vielleicht pass ich irgendwann, dann in euer Puzzle rein
 Heute will ich nur noch ein - Zimmer ganz für mich allein!
 
 
+d#	d#	H	A#
+
 Werd ich meinen Weg je finden?  
 ...mit dir fühl ich mich nicht eingesperrt  
 Werd ich je vertrauen können?  
