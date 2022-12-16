@@ -26,10 +26,10 @@ Glaubst du noch an Lenin, an die Revolution?
 Zweifelst du? bist du das Glauben schon gewohnt?  
 Du stehst auf einer Mülltonne und predigst zu den Massen  
 Und willst sie für die Ignoranz eigentlich nur hassen  
-All das Leid der Welt ist deine Leidenschaft  
+All das Leid in dieser Welt ist deine Leidenschaft  
 Und dass die Bücher wissen wer dran schuld ist gibt dir Kraft  
 Eines Tages kommt sie, das weißt du, die Revolte  
-und dann wirst du sicher sehn, ob das das ist, was du wolltest
+dann wirst du sicher sehn, ob das das ist, was du wolltest
 
 
 Refrain am Ende als Kanon ausklingen lassen, evtl mit klatschen?

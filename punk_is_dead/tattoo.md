@@ -1,6 +1,6 @@
 # _tattoo
 
-Ich bin alt & farblos deshalb brauch ich bunte Haare  
+Ich bin alt ich bin farblos deshalb brauch ich bunte Haare  
 die das Lügenbild erwecken ich wär spannend & weird  
 Ich hab nichts zu sagen deshalb brauch ich mehr Tattoos  
 die Geschichten erzählen die ich nie erleben werd  
