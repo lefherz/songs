@@ -9,7 +9,7 @@ ich flüchte so von Stadt zu Stadt
 und habe all die Züge satt  
      G              F  
 Wir können Stunden reden  
-           e                         d  
+           C                         d  
 über unsre Kämpfe, und wo sie heut stehen  
       B                d  
 auch wenn ich euch gefunden hab  
