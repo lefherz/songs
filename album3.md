@@ -1,4 +1,4 @@
-# verbrämt und unverschämt?
+# gezähmt und unverschämt?
 
 ## ideas:
 
@@ -11,15 +11,17 @@
 
 ## tracklist:
 
-- Spiegel
-- Liebe Mich
-- Winde
-- Ampeln
-- Spannung?
+- Herz Gefickt
 - Studenten
 - Hitler war auch nur ein Deutscher
-- Sonnenfinsternis
+- Liebe Mich
+- Spiegel - beat -> MIDI?
 - Märchenprinz
-- Prostitution?
+- Sonnenfinsternis
+- Warten
 - Zähne
-- Herz Gefickt
+- Winde
+- Rastlos
+- Prostitution
+- Ampeln
+- Spannung
