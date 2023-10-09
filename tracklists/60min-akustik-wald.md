@@ -1,18 +1,18 @@
-Bullen, Kapitalismus, Sexismus, Gewalt, fragwürdige Beziehungsdynamiken und patriarchale Gewalt, HIV, Suizid, Alkoholismus
+Bullen, Rassismus, Gewalt, HIV, Suizid, Alkoholismus
 
 Studenten
 
 Asphalt
 
-Irgendwo in einem Wald
+Irgendwo in einem Wald -> ohne 3. + 5. Strophe
 
-Krätze
+49 Euro -> 5 Wörter
 
-Who you gonna call (the EA!)
+Who you gonna call (the EA!) -> Akkorde
 
 Prima Militant
 
-Prima Pazifist
+Prima Pazifist -> in unserm Land herrscht Frieden und hier kannst du ihn genießen
 
 Zerstörungslied
 
@@ -26,8 +26,6 @@ Scared
 
 Spannung
 
-Vernichtungsphantasie
-
 Ampeln
 
 Winde
@@ -35,5 +33,4 @@ Winde
 Zugabe: Letzte Worte
 
 Zugabe: Grölen
-
 
