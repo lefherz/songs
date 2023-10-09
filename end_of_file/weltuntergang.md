@@ -30,7 +30,7 @@ als ich eine Wette mit Gott gewann.
 
 Als ich den Kindern beim sterben zusah  
 gab es keine Moral mehr, die mich aufschreien ließ  
-Sie klagte, wieso ich denn nichts unternahm  
+Sie fragte, wieso ich denn nichts unternahm  
 und ich, warum sie sich auch jetzt noch belügt.  
 Die mit dem Geld und der Macht guckten verwirrt  
 Denn wenn alles stirbt, sind wir alle gleich  
