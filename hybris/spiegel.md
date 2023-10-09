@@ -50,4 +50,4 @@ ich weiß nicht, werd ich mir je vertrauen?
 Und küsst du mich, wie ich mich sehne, gibst du mir dein  
 Blut oder nur - oder nur deine Tränen?
 
-
+geile Variante von Compost: e h C H7

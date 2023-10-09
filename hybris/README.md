@@ -1,4 +1,4 @@
-# gezähmt und unverschämt?
+# Hybris
 
 ## ideas:
 
@@ -7,21 +7,26 @@
 - don't be afraid of pop :D
 - new artist name might make sense
   - Nami Lefherz
-  - 
+- doesn't need to be more than 40 minutes
 
 ## tracklist:
 
+- Spiegel
+- Rastlos
+- Märchenprinz
+- Sonnenfinsternis
+- Warten
+- One Day
+
+### maybe:
+
+- Quit?
 - Herz Gefickt
 - Studenten
 - Hitler war auch nur ein Deutscher
 - Liebe Mich
-- Spiegel - beat -> MIDI?
-- Märchenprinz
-- Sonnenfinsternis
-- Warten
 - Zähne
 - Winde
-- Rastlos
 - Prostitution
 - Ampeln
 - Spannung
