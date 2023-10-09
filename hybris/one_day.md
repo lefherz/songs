@@ -27,5 +27,27 @@ I experienced the power to make them stop
 and while I sing of anarchy, I can't deny the sacred part of me,  
 that likes to play god
 
+- Erste Strophe: traue ich mich, weiterzukämpfen?
 
+- Zweite Strophe: ist Direct Action/Selbstwirksamkeit Hybris?
+  - Ohnmacht, Angst, Trauma, Burn-Out
+
+- Refrain: Liebe für alle, die ihr Leben in die eigene Hand nehmen?
+  - Unser Trotz ist die Liebe füreinander?
+
+they made me scared, they made me angry,  
+they made me want to fight forever  
+they see a danger in us -  
+so let's be dangerous together
+they tried to make me careful  
+but I will just be full of care  
+and every day I try to act  
+as if they wouldn't still be there
+
+
+- You made me scared, you made me angry, you made me want to fight you forever
+  - what you made of us, we can remake
+  - I can not see who I will be; but being unpredictable is what makes us dangerous
+- Trauma shapes us; but we can not only re-shape the world, we can re-shape ourselves
+- One day I will be different, one day I will be free. And I will love whoever I will become
 
