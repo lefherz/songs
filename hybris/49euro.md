@@ -23,7 +23,7 @@ Der Zugbegleiter würd' mich gerne töten
 Ich glaub ich steige lieber nochmal um
 
 Meine Miete kostet Neunundvierzig Mäuse  
-Dafür ist sie nicht inkludiert im Hartz  
+Dafür ist sie beim Hartz nicht mit dabei  
 Der Sitz auf dem ich schlafe hat wohl Läuse  
-Wenns teurer wird, dann fahr' ich wieder schwarz!
+Wenns teurer wird, fahr ich wieder ticketfrei!
 
