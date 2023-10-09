@@ -30,6 +30,7 @@ merkt ihr denn nicht alle, wie friedlich es hier ist
 Nehmen wir uns bei der Hand und drehen uns im Kreis  
 ob Bullen oder Nazis, lilablassblau oder weiß!
 
+e   a   G   f#  
 Und weil ich so friedlich bin, geh ich zur Polizei  
 Nichts sagt so sehr Pazifist wie uniform und prügeln  
 Wenn alle uns gehorchen, dann wird endlich Frieden sein  
