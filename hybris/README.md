@@ -17,16 +17,17 @@
 - Sonnenfinsternis
 - Warten
 - One Day
+- 49 Euro
 
 ### maybe:
 
-- Quit?
 - Herz Gefickt
 - Studenten
 - Hitler war auch nur ein Deutscher
+- Ampeln
+- Quit?
 - Liebe Mich
 - Zähne
 - Winde
 - Prostitution
-- Ampeln
 - Spannung
