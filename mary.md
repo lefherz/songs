@@ -20,7 +20,7 @@ Mary did you know that your baby girl
 is suffering through each dinner  
 Did you know, that your baby girl  
 drowns a fire inside  
-And that it might destroy your marriage  
+And that it might destroy your family  
 If the fire wouldn't hide
 
 Oh, Mary did you know!?
@@ -30,7 +30,7 @@ And did you want to know?
 The blind will see  
 the deaf will hear  
 when silence sings again  
-embrace the truth  
+so face the wolf  
 and listen through  
 the story of the lamb
 
