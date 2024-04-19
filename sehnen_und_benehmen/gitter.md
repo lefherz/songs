@@ -31,10 +31,6 @@ solange man nur dafür bezahlt
 d|9999|9999|7777|7777|
 a|7777|6666|5555|4444|
 ```
-Freiheit hier im Kaufregal  
-zeigst du mir mein täglich' Glück  
-Freiheit, Freiheit scheißegal  
-deine Zusatzstoffe machen dick  
 Freiheit Freiheit, unser Glück  
 du ziehst mich in deinen Bann  
 Freiheit, Freiheit, ich brauch dich  
@@ -43,6 +39,10 @@ Freiheit, Freiheit lebst bei uns
 sagt die Werbung jeden Tag  
 Freiheit, Freiheit, wer ist schuld  
 dass ich dich noch nie gesehen hab.  
+Freiheit hier im Kaufregal  
+zeigst du mir mein täglich' Glück  
+Freiheit, Freiheit scheißegal  
+deine Zusatzstoffe machen dick  
 Freiheit, Freiheit fütterst mich  
 Vielfalt ist mein täglich Brot  
 Freiheit, bist du ausverkauft  
