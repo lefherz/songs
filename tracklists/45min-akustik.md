@@ -1,33 +1,33 @@
-Montag
+Studenten
+
+Asphalt
+
+Wald
+
+Krätze
+
+Grölen
 
 Warum
-
-Prima Militant
-
-Prima Pazifist
-
-Polizisten verbreiten Hass
 
 Hitler gewählt
 
 Weltuntergang
 
+Winde
+
 Clyde²
 
 Liebe Mich
 
-Priester
+Sonnenfinsternis
 
-Stier & Stier
+Zerstörungslied
 
-Virus
-
-Vernichtungsphantasie
-
-Studie in 7
+Scared
 
 Ampeln
 
-Vogellied
+Vogelfrei
 
 (Letzte Worte)
