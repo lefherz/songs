@@ -2,23 +2,23 @@ Studenten
 
 Asphalt
 
-Wald
+Wald (Bullen, Gerichte)
 
-Krätze
+Krätze (Krätze, ansteckende Krankheiten, toxische Beziehungen)
 
-Grölen
+Grölen (Alkoholismus)
 
-Warum
+Warum (Gerichte)
 
-Hitler gewählt
+Hitler gewählt (Tod)
 
-Weltuntergang
+Weltuntergang (Tod, Inzest)
 
 Winde
 
-Clyde²
+Clyde² (Tod, Bullen)
 
-Liebe Mich
+Liebe Mich (toxische Beziehungen)
 
 Sonnenfinsternis
 
@@ -26,8 +26,9 @@ Zerstörungslied
 
 Scared
 
-Ampeln
+Ampeln (Tod)
 
-Vogelfrei
+Vogelfrei (Bullen)
 
-(Letzte Worte)
+(Letzte Worte) (Alkoholismus, Suizid, Religion)
+
