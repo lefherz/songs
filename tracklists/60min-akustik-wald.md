@@ -1,36 +1,40 @@
-Bullen, Rassismus, Gewalt, HIV, Suizid, Alkoholismus
+Content Warnings: Repression, Tod, Massensterben, Suizid, Ansteckende Krankheiten
 
 Studenten
 
-Asphalt
+Asphalt (Repression)
 
-Irgendwo in einem Wald -> ohne 3. + 5. Strophe
+Irgendwo in einem Wald -> ohne 3. + 5. Strophe (Repression)
 
 49 Euro -> 5 Wörter
 
-Who you gonna call (the EA!) -> Akkorde
+Who you gonna call (the EA!) -> Akkorde (Repression)
 
-Prima Militant
+Zerstörungslied (Tod)
 
-Prima Pazifist -> in unserm Land herrscht Frieden und hier kannst du ihn genießen
+Hitler gewählt (Massensterben)
 
-Zerstörungslied
-
-Hitler gewählt
-
-Weltuntergang
-
-Vogelfrei
-
-Scared
-
-Spannung
-
-Ampeln
+Weltuntergang (Massensterben)
 
 Winde
 
-Zugabe: Letzte Worte
+Sonnenfinsternis
+
+Vor Gericht (Repression)
+
+One Day (Repression)
+
+Der Blick (Repression)
+
+Ampeln (Suizid)
+
+Spannung (Ansteckende Krankheiten, Suizid, Repression)
+
+Kaktus
+
+Scared (Repression)
 
 Zugabe: Grölen
+
+Zugabe: Letzte Worte
 
