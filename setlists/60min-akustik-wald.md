@@ -1,4 +1,4 @@
-Content Warnings: Repression, Tod, Massensterben, Suizid, Ansteckende Krankheiten
+Content Warnings: Repression, Tod, Massensterben, Suizid, Ansteckende Krankheiten, Religion
 
 Studenten
 
@@ -6,15 +6,15 @@ Asphalt (Repression)
 
 Irgendwo in einem Wald -> ohne 3. + 5. Strophe (Repression)
 
-49 Euro -> 5 Wörter
+49 Euro -> Euro, Piepen, Tacken, Kröten, Mäuse
 
-Who you gonna call (the EA!) -> Akkorde (Repression)
+Who you gonna call (the EA!) -> A G D E - A# C G D (Repression)
 
 Zerstörungslied (Tod)
 
 Hitler gewählt (Massensterben)
 
-Weltuntergang (Massensterben)
+Weltuntergang (Massensterben, Religion)
 
 Winde
 
@@ -36,5 +36,5 @@ Scared (Repression)
 
 Zugabe: Grölen
 
-Zugabe: Letzte Worte
+Zugabe: Letzte Worte (Alkoholismus, Religion)
 
