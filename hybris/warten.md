@@ -22,7 +22,7 @@ ich sitz hier und frage mich, hast du das gewusst?
 und ob du mit mir baden willst, vielleicht im August.
 
 
-Wenn du nicht mit mir vögeln willst, schlaf ich mit Helene.  
+Wenn du nicht mit mir schlafen willst, schlaf ich mit Helene.  
 und am besten fragen wir noch Murat oder Bene  
 wer genau, ist das nicht am Ende auch egal  
 du behauptest immer, Menschen sind nicht austauschbar.  
@@ -32,11 +32,11 @@ doch ich kauf ihn mir nicht ab, diesen dummen Trick
 ich denke dabei nur an dich, jeden Augenblick.
 
 
-Wenn dus mir nicht sagen willst, red ich mit Nadira  
+Wenn dus mir nicht sagen willst, dann frag ich halt Nadira  
 ich will doch nur hören, stehst du denn auf meine Lieder?  
-_ dass du mich willst und dass du grade an mich denkst  
+_ dass du mich liebst und dass du weiter an mich denkst  
 und dass du mein kleines Geständnis nicht verschenkst.  
-Zuhörn kann Nadira mindestens so gut wie du  
+Zuhören kann Nadira fast so gut wie du  
 Zuhören kann sogar auch ihre ganze Crew  
 und so weiß es sicher schon bald die ganze Stadt  
 wenn sie mit dem zuhörn erstmal angefangen hat.
@@ -47,7 +47,7 @@ _ der gibt mir Ruhe, denn ich bin nicht so geduldig
 Ulrich zieht es mehr zum sitzen auf dem Sofa hin  
 doch ich bin immer auf der Suche nach mehr Dopamin.  
 Ulrich ist bestimmt vom Warten mit mir schnell genervt  
-weil mein Zappeln sich mit jedem Augenblick verschärft  
-doch solange ich auf deiner kleinen Flamme brate  
+weil mein Gezappel sich mit jedem Augenblick verschärft  
+doch solange ich hier auf deiner kleinen Flamme brate  
 muss er damit leben, dass ich weiter auf dich warte.
 
