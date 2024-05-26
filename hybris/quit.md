@@ -23,9 +23,8 @@ my whole life people simply assumed my gender doesn't exist
 and every time I questioned their world
 it felt like I had to defend my existence
 that's why I fight to tooth and nail even in harmless discussions
-because such a harmless thing as not understanding the world as constructed by intersubjective discoursive actions
-because something as harmless as not understanding how nothing is god-given and everything can be changed
-tells me you're not taking me as I am
+because while it's harmless that you think the world and our language are god-given and can't be changed
+it tells me you're not taking me as I am
 
 I think they don't understand either what part of me bothers them
 just as I feel attacked by their basic world view
