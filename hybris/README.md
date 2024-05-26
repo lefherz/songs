@@ -11,21 +11,21 @@
 
 ## tracklist:
 
-- Spiegel
-- Rastlos
-- Märchenprinz
+- Studenten
 - Sonnenfinsternis
-- Warten
-- One Day
+- Märchenprinz
+- Spiegel
+- Herz Gefickt
+- Hitler war auch nur ein Deutscher?
 - 49 Euro
+- Warten
+- Rastlos
+- One Day
+- Quit
 
 ### maybe:
 
-- Herz Gefickt
-- Studenten
-- Hitler war auch nur ein Deutscher
 - Ampeln
-- Quit?
 - Liebe Mich
 - Zähne
 - Winde
