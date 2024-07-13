@@ -15,9 +15,9 @@ nicht -- ich bin immer noch davon
 dicht!
 
 ```
-d|8888--44|44--x-x-|3333--77|77--x-x-|
-a|8888--44|44--x-x-|3333--77|77--x-x-|
-e|6666--22|22--x-x-|1111--55|55--x-x-|
+d|8888--44|444-x-x-|3333--77|777-x-x-|
+a|8888--44|444-x-x-|3333--77|777-x-x-|
+e|6666--22|222-x-x-|1111--55|555-x-x-|
 ```
 
 Was du machst, was du sagst, wies dir geht, wen du magst  
@@ -26,14 +26,18 @@ wen du hasst, was das aussagt und worüber du mich ausfragst
 -- Senkel.  
 Do I worry, do I care, warum fällt es mir so schwer  
 warum will ich nach all der Zeit in der nichts kam, immer noch  
-mehr?  
-und da gibts ja gar nichts, da ist ja nix dahinter. 
+mehr?  immer noch? immer noch? immer noch? im-  
+mer noch mehr mehr mehr mehr mehr mehr  
+mehr!
+
+im-mer noch mehr!  
+im-mer noch mehr!
 
 ```
-g|8888--55|55--x-x-|3333--22|22--x-x-|
-d|8888--44|44--x-x-|3333--33|33--x-x-|
-a|8888--44|44--x-x-|3333--33|33--x-x-|
-e|6666--22|22--x-x-|1111--11|11--x-x-|
+g|8888--55|555-x-x-|3333--22|222-x-x-|
+d|8888--44|444-x-x-|3333--33|333-x-x-|
+a|8888--44|444-x-x-|3333--33|333-x-x-|
+e|6666--22|222-x-x-|1111--11|111-x-x-|
 ```
 
 Die Sorgen um dich -- hab ich mir vor langer Zeit  
