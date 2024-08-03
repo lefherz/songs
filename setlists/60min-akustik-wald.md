@@ -1,5 +1,7 @@
 Content Warnings: Repression, Tod, Massensterben, Suizid, Ansteckende Krankheiten, Religion
 
+Montag
+
 Studenten
 
 Asphalt (Repression)
@@ -24,13 +26,11 @@ Vor Gericht (Repression)
 
 One Day (Repression)
 
+Vogelfrei (Repression)
+
 Der Blick (Repression)
 
-Ampeln (Suizid)
-
 Spannung (Ansteckende Krankheiten, Suizid, Repression)
-
-Kaktus
 
 Scared (Repression)
 
