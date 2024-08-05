@@ -39,3 +39,17 @@ that makes the outcast whole
 and that I may forgive them  
 on the day I'm in control.
 
+some roads don't go to Rome  
+a donkey ain't a horse  
+Jerusalem feels more like home  
+and he don't show remorse  
+they say he mocked a king  
+and threw the merchants out  
+
+
+Der zimmerer, der auf nem Esel nach Jerusalem einritt,
+um sich über die Könige und Kaiser lustig zu machen,
+und die Händler aus dem Tempel warf,
+und dafür dann hingerichtet wurde,
+aber um seine Ideen totzukriegen,
+musste Paulus sie institutionalisieren
