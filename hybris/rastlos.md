@@ -56,3 +56,14 @@ und die doch immer bei mir sind
 wenn wir im Traum zur nächsten  
 Waldbesetzung fahrn
 
+Im Danni auf nem Banner stand  
+"sie wollten uns begraben"  
+sie ham wohl das Problem verkannt  
+und wussten nichts vom Widerstand,  
+heute kriegt der Asphalt Risse  
+unsre Wurzeln tief und lang  
+sie wussten nicht - wir waren  
+Samen, warn wir noch so klein  
+Samen waren, Samen sind,  
+Samen werden immer sein!
+
