@@ -55,6 +55,16 @@ I'm afraid I must insist
 
 ## Prechorus
 
+And I won't use a high voice  
+just so you respect me  
+the mirror image you adore and hate  
+doesn't reflect me  
+And no it isn't my choice  
+whether you accept me  
+but if you hate me for my gender,  
+then please hate me correctly!
+
+
 ## Chorus
 
 ## End Chord
