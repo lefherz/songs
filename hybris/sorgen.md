@@ -40,6 +40,16 @@ a|8888--44|444-x-x-|3333--33|333-x-x-|
 e|6666--22|222-x-x-|1111--11|111-x-x-|
 ```
 
+Ob du weinst, ob du lachst, ob es schneit, ob es kracht  
+ob es reicht, ob es uns reicht - wir haben uns dazu  
+gemacht.  -- hab ich das gewollt?  
+Schweigen ist Silber, Streiten ist Gold  
+ob ich jemals wieder mit wem anders leben kann  
+ob ich das soll, oder ist man doch verdammt  
+zum einsam sterben -- ich weiß nur,  
+wer ich mit dir bin, wollte ich niemals werden
+
+
 Die Sorgen um dich -- hab ich mir vor langer Zeit  
 abgewöhnt.  
 Und morgen werd' ich dich vergessen, ich bin mit der  
@@ -49,6 +59,5 @@ versprochen -- doch so wirklich nüchtern
 geworden bin ich -- während unsrer Abhängigkeit  
 nicht -- ich bin immer noch davon  
 dicht!
-
 
 
