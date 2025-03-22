@@ -1,8 +1,10 @@
 # Spiegel
 
-(Melodie/Akkorde von Happier than ever?)
+3/4-Takt
 
-Powerchords: E D C F/D E D C H
+## 1. Strophe
+Powerchords in der Aufnahme: E D C F/D E D C H  
+Akustik: e h C9 H7 - erste Strophe gezupft, die zweite eine hektische Steigerung des Refrains
 
 schütt dein Herz aus, hier in meinen Krug  
 Und ich leere ihn in einem Zug  
@@ -13,10 +15,20 @@ und dass du mich auf Meilen anziehst
 Der Schmerz in dir ist so klar  
 wie all die Ichs, die ich schon war
 
+## Refrain
+Aufnahme:
 ```
 d|------|------|------|------|------|a--a--|------|------|
 a|b--b--|------|8--8--|------|b--b--|------|------|d-----|
 e|------|8--8--|-----8|9--9--|------|------|9--9--|---c--|d
+```
+Akustik:
+```
+e|---000|---000|---000|---000|---000|---000|---000|---000|
+h|---000|---000|---000|---000|---000|---000|---000|---000|
+g|999999|777777|555555|444444|999999|444444|555555|777777|
+d|999999|777777|555555|444444|999999|444444|555555|777777|
+e|777777|555555|333333|222222|777777|222222|333333|555555|
 ```
 
 Ich hab  
@@ -29,7 +41,7 @@ das ist weder so toll noch gesund
 dein Vertrauen ist auf Sand gebaut  
 Hast du nicht in meinen Spiegel geschaut?
 
-
+## 2. Strophe
 Und ich lecke dir über die Narben  
 ich frag dich nach all deinen Namen  
 ich erzähle dir von meinem Schmerz  
@@ -39,6 +51,9 @@ Jedes Mal, wenn ich zustech, tuts weh
 Und weil du so viel von mir weißt  
 versteh ich nicht, warum du bleibst  
 
+## Outro
+Akustik: e' e' D' D' C' C' h' h'  
+ab der Hälfte dann h und e Seite offen lassen 
 
 Und  
 ich schlage die Scheibe entzwei, bis ich meine  
@@ -50,4 +65,3 @@ ich weiß nicht, werd ich mir je vertrauen?
 Und küsst du mich, wie ich mich sehne, gibst du mir dein  
 Blut oder nur - oder nur deine Tränen?
 
-geile Variante von Compost: e h C H7
