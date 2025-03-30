@@ -3,6 +3,7 @@
 - Ladylike
 - Womanhood
 - Hitler war auch nur ein Deutscher
+- Herrscher
 - Sorgen
 - Spiegel
 - Sonnenfinsternis
